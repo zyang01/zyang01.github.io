@@ -14,7 +14,7 @@ Reformation Party Invite - See the post titled “[On Reformation Party 🎉🎉
 
 Do you know what hurts the most throughout this journey? It's not the fact that [my mom called me a failure and a disappointment](../on-my-parents){:target="_blank"} after all that [I have done for my siblings](../on-my-mom){:target="_blank"} in the last couple of years.
 
-It's the fact that after all that [I have done](../reasoning-behind-preaching-mainland-china-jonah-style){:target="_blank"} and [written](https://blog.biblesays.love){:target="_blank"}, four-figure views on [LinkedIn](https://www.linkedin.com/in/aaron-yang-7a6486154/){:target="_blank"} on my posts per day, and [hundreds of visitors](../on-fear){:target="_blank"} to YouOweMeACoffee.com per week and mostly people who know me personally because I have been posting on WeChat too, only 10 people bought me coffee. Do you think I care about that £4/$5 per coffee?
+It's the fact that after all that [I have done](../reasoning-behind-preaching-mainland-china-jonah-style){:target="_blank"} and [written](https://blog.biblesays.love){:target="_blank"}, four-figure views on [LinkedIn](https://www.linkedin.com/in/jonah-troublemaker-yang/){:target="_blank"} on my posts per day, and [hundreds of visitors](../on-fear){:target="_blank"} to YouOweMeACoffee.com per week and mostly people who know me personally because I have been posting on WeChat too, only 10 people bought me coffee. Do you think I care about that £4/$5 per coffee?
 
 What Christmas present am I going to get this winter?
 

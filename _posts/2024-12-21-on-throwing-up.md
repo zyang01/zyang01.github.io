@@ -12,7 +12,7 @@ Once again, the Lord will take care of me and I'm not worried in the slightest f
 
 If you don't believe me, then that's fine with me.
 
-It's not like I have a [computer science degree from Oxford](https://veri.edocuments.ox.ac.uk/?reference=17105220-01-QRNW){:target="_blank"} and [spent nearly a decade building algorithmic trading models](https://www.linkedin.com/in/aaron-yang-7a6486154/){:target="_blank"} or something.
+It's not like I have a [computer science degree from Oxford](https://veri.edocuments.ox.ac.uk/?reference=17105220-01-QRNW){:target="_blank"} and [spent nearly a decade building algorithmic trading models](https://www.linkedin.com/in/jonah-troublemaker-yang/){:target="_blank"} or something.
 
 Proverbs 12:15
 
