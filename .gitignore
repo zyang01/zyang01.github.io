@@ -26,3 +26,4 @@ package-lock.json
 _sass/vendors
 assets/js/dist
 _posts/YYYY-MM-DD-TITLE.md
+_tabs/categories.md
