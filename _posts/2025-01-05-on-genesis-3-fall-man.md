@@ -30,4 +30,6 @@ The Fall
 
 He said to the woman, “Did God actually say, ‘You shall not eat of any tree in the garden’?” [2] And the woman said to the serpent, “We may eat of the fruit of the trees in the garden, [3] but God said, ‘You shall not eat of the fruit of the tree that is in the midst of the garden, neither shall you touch it, lest you die.’” [4] But the serpent said to the woman, “You will not surely die. [5] For God knows that when you eat of it your eyes will be opened, and you will be like God, knowing good and evil.” [6] So when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of its fruit and ate, and she also gave some to her husband who was with her, and he ate.
 
+Edit: the thing the serpent gave the woman was doubt.
+
 ![](/JfMJFax8qvLnzDjn.jpg)
