@@ -14,7 +14,7 @@ timezone: Europe/London
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: Jonah @ Bible Says Love # the main title
+title: Jonah @ He Said Love # the main title
 
 tagline: Writing about the good, the bad, and the ugly during my walk with Boss Man and His love. # it will display as the subtitle
 
@@ -23,7 +23,7 @@ description: >- # used by seo meta and the atom feed
 
 # Fill in the protocol & hostname for your site.
 # E.g. 'https://username.github.io', note that it does not end with a '/'.
-url: "https://blog.biblesays.love"
+url: "https://hesaid.love"
 
 github:
   username: zyang01 # change to your GitHub username
@@ -60,9 +60,9 @@ webmaster_verifications:
 # Web Analytics Settings
 analytics:
   google:
-    id: G-0N0B1841V1 # fill in your Google Analytics ID
+    id: G-XC0YKG3389 # fill in your Google Analytics ID
   goatcounter:
-    id: biblesayslove # fill in your GoatCounter ID
+    id: hesaidlove # fill in your GoatCounter ID
   umami:
     id: # fill in your Umami ID
     domain: # fill in your Umami domain
@@ -70,7 +70,7 @@ analytics:
     id: # fill in your Matomo ID
     domain: # fill in your Matomo domain
   cloudflare:
-    id: 4b69ffd83050433ab1acef2f04cae89a # fill in your Cloudflare Web Analytics token
+    id: # fill in your Cloudflare Web Analytics token
   fathom:
     id: # fill in your Fathom Site ID
 
