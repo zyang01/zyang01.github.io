@@ -96,7 +96,7 @@ theme_mode: # [light | dark]
 # will be added to all media resources (site avatar, posts' images, audio and video files) paths starting with '/'
 #
 # e.g. 'https://cdn.com'
-cdn: "https://dl.biblesays.love"
+cdn: "https://dl.hesaid.love"
 
 # the avatar on sidebar, support local or CORS resources
 avatar: "/7b68e02ebd442302430045b315edcd3f.jpg"
