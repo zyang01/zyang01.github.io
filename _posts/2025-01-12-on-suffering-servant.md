@@ -116,3 +116,5 @@ And they made [his grave with the wicked
     and with a rich man in his death](../on-betrayal/){:target="_blank"},
 although he had [done no violence](../reasoning-behind-going-rome-fig-tree/){:target="_blank"},
     and there was [no deceit in his mouth](../on-truthfulness-my-posts/){:target="_blank"}.
+
+![](/6oym5mcDe14orb8x.gif)
