@@ -8,7 +8,7 @@ If you got here via Spotify Ads and have no idea what this is, I am here to info
 
 Last Monday, I accidentally stumbled across the Songs of the Suffering Servant in the Book of Isaiah in the Hebrew Bible. I realised that the suffering servant is a more fitting description for me than my Lord and Saviour Jesus Christ when He showed up 2,000 years ago. To save you from reading through the 239 posts I wrote since the end of October, I will provide some quick references here to prove my claim.
 
-FYI, I have been fulfilling prophecies in scripture on a small scale even before I even read about them. I still almost pooped myself every single time.
+FYI, I have been fulfilling prophecies in scripture on a small scale even before I read about them. I still almost pooped myself every single time.
 
 ### Isaiah 49:1-6
 
