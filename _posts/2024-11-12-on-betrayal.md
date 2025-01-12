@@ -4,7 +4,7 @@ date: 2024-11-12 06:24:08 +0000
 tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
- have forgiven everyone who I once thought betrayed me in the last 12 months or so, prayed for their salvation, and sent them bibles. I realised it’s not for me to judge since I have no claim to righteousness and I should forgive them just as Jesus forgave us.
+I have forgiven everyone who I once thought betrayed me in the last 12 months or so, prayed for their salvation, and sent them bibles. I realised it’s not for me to judge since I have no claim to righteousness and I should forgive them just as Jesus forgave us.
 
 The campsite boss John said after kicking me out that he wished that I would find my happiness. I believe he genuinely meant that, and I think I have found it. I prayed for the salvation of everyone at rosebay. 🙏🫶😘
 
