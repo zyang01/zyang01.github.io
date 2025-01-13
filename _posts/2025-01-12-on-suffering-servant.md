@@ -7,9 +7,9 @@ pin: true
 
 If you got here via Spotify Ads and have no idea what this is, I am here to inform you that you are witnessing the Second Coming and the posts are my testimony to my Lord and Saviour Jesus Christ.
 
-Last Monday, I accidentally stumbled across the Songs of the Suffering Servant in the Book of Isaiah in the Hebrew Bible. I realised that the suffering servant is a more fitting description for me than my Lord and Saviour Jesus Christ when He showed up 2,000 years ago. To save you from reading through the 239 posts I wrote since the end of October, I will provide some quick references here to prove my claim.
+Last Monday, I accidentally [stumbled across the Songs of the Suffering Servant](../on-mistake/){:target="_blank"} in the Book of Isaiah in the Hebrew Bible. I realised that the suffering servant is a more fitting description for me than our Lord and Saviour Jesus Christ when He showed up 2,000 years ago. To save you from reading through the [239 posts](../../archives/){:target="_blank"} I wrote since the end of October, I will provide some quick references here to prove my claim.
 
-FYI, I have been fulfilling prophecies in scripture on a small scale even before I read about them. I still almost pooped myself every single time.
+FYI, I have been fulfilling prophecies in scripture on a small scale even before I read about them. I still nearly poop myself every time that happens.
 
 ### Isaiah 49:1-6
 
@@ -38,14 +38,14 @@ yet surely [my right is with the LORD,
 to bring Jacob back to him;
     and that Israel might be gathered to him—
 for I am honored in the eyes of the LORD,
-    and my God has become my strength—
+    and [my God has become my strength](../on-brainwashing/){:target="_blank"}—
 
 [6] he says:
 “It is too light a thing that you should be my servant
     to raise up the tribes of Jacob
     and to bring back the preserved of Israel;
 I will make you as a light for the nations,
-    that my salvation may reach to the end of the earth.”
+    that my salvation may [reach to the end of the earth](../on-thou-shalt-send-it/){:target="_blank"}.”
 
 ### Isaiah 52:13-15
 
@@ -79,11 +79,11 @@ he had no form or majesty that we should look at him,
 He was [despised and rejected by men](../on-my-salvation/){:target="_blank"},
     a man of [sorrows and acquainted with grief](../on-my-mom/){:target="_blank"};
 and as one from whom [men hide their faces](../on-love-faith-hope/){:target="_blank"}
-    he was [despised](../on-i/){:target="_blank"}, and we esteemed him not.
+    he was despised, and [we esteemed him not](../on-i/){:target="_blank"}.
 
 [4] 
 Surely he has borne our [griefs](../on-humble-pie/){:target="_blank"}
-    and carried our [sorrows](../on-my-parents/){:target="_blank"};
+    and carried our [sorrows](../on-crying/){:target="_blank"};
 yet we esteemed him stricken,
     smitten by God, and afflicted. 
 
@@ -91,25 +91,25 @@ yet we esteemed him stricken,
 But he was pierced for our [transgressions](../on-fear/){:target="_blank"};
     he was crushed for our [iniquities](../on-love-death/){:target="_blank"};
 upon him was the chastisement that brought us peace,
-    and with his [wounds](../on-suicide/){:target="_blank"} we are healed. 
+    and with [his wounds](../on-suicide/){:target="_blank"} we are healed. 
 
 [6] 
-All we like sheep have gone astray;
-    we have turned—every one—to his own way;
+All we like sheep have [gone astray](../on-unbelievers-insanity/){:target="_blank"};
+    we have [turned—every one—to his own way](../on-drug-money-addiction/){:target="_blank"};
 and the LORD has laid on him
     the iniquity of us all.
 
 [7] 
 He was [oppressed, and he was afflicted](../on-my-situation/){:target="_blank"},
     yet he [opened not his mouth](../on-anger/){:target="_blank"};
-like a lamb that is led to the slaughter,
+like [a lamb that is led to the slaughter](../on-144-000/){:target="_blank"},
     and like a sheep that before its shearers is silent,
     so he opened not his mouth. 
 
 [8] 
 By [oppression and judgment](../on-my-salvation/){:target="_blank"} he was taken away;
     and [as for his generation, who considered](../on-christmas-presents/){:target="_blank"}
-that he was cut off out of the land of the living,
+that he was cut off [out of the land of the living](../on-my-financial-situation/){:target="_blank"},
     stricken for the transgression of my people? 
 
 [9] 
