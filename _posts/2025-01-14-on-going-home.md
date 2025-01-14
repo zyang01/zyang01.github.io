@@ -9,6 +9,6 @@ I arrived in Tel Aviv earlier this morning. As usual, I was invited to have a on
 
 Frankly, I don't mind walking straight into a missile delivery. At least I will get to meet my Father instead of dealing with my "friends." I found out quite recently that everyone is fake, and the insides are totally different from the outsides.
 
-I'm going to visit a synagogue and try to talk to someone. After that, I'm going to Jerusalem, and hopefully, you won't see me again. My willingness to save this shitty hopeless world is negative right now.
+I'm going to visit a synagogue and try to talk to someone. After that, I'm going to Jerusalem, and hopefully, you won't see me again. My willingness to save this shitty loveless, hopeless and faithless world is negative right now.
 
 Bye.
