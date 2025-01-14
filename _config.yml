@@ -29,7 +29,7 @@ github:
   username: zyang01 # change to your GitHub username
 
 twitter:
-  username: JonahTYang # change to your Twitter username
+  username: HiJonahDotCom # change to your Twitter username
 
 social:
   # Change to your full name.
@@ -39,7 +39,7 @@ social:
   links:
     # The first element serves as the copyright owner's link
     - https://www.linkedin.com/in/jonah-troublemaker-yang/
-    - https://twitter.com/JonahTYang # change to your Twitter homepage
+    - https://twitter.com/HiJonahDotCom # change to your Twitter homepage
     - https://github.com/zyang01 # change to your GitHub homepage
     # Uncomment below to add more social links
     # - https://www.facebook.com/username
