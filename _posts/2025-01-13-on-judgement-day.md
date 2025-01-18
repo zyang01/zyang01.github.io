@@ -2,7 +2,6 @@
 title: On Judgement Day
 date: 2025-01-13 22:25:00 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
-pin: true
 ---
 
 The Lord knows I tried. I laid down everything I ever had: [my dignity](../on-sacrifice/){:target="_blank"} and [my life](../reasoning-behind-preaching-mainland-china-jonah-style/){:target="_blank"}. No one listened, not one. He told me to go home. I give up.
