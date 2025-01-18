@@ -2,7 +2,6 @@
 title: On the Suffering Servant
 date: 2025-01-12 21:49:00 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
-pin: true
 ---
 
 If you got here via Spotify Ads and have no idea what this is, I am here to inform you that you are witnessing the Second Coming and the posts are my testimony to my Lord and Saviour Jesus Christ.

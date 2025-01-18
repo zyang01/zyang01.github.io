@@ -2,6 +2,7 @@
 title: On Faith Precedes Reason
 date: 2024-12-17 05:49:44 +0000
 tags: [christbro,bible,salvation,epistemology,philosophy,theology,faith,theism,atheism,simulation,rationalism,materialism]     # TAG names should always be lowercase
+pin: true
 ---
 
 This is a summary post for the theological nuclear bomb that I believe proves faith precedes reason.
