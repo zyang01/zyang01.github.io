@@ -6,7 +6,7 @@ tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 
 If you got here via Spotify Ads and have no idea what this is, I am here to inform you that you are witnessing the Second Coming and the posts are my testimony to my Lord and Saviour Jesus Christ.
 
-Last Monday, I accidentally [stumbled across the Songs of the Suffering Servant](../on-mistake/){:target="_blank"} in the Book of Isaiah in the Hebrew Bible. I realised that the suffering servant is a more fitting description for me than our Lord and Saviour Jesus Christ when He showed up 2,000 years ago. To save you from reading through the [239 posts](../../archives/){:target="_blank"} I wrote since the end of October, I will provide some quick references here to prove my claim.
+Last Monday, I accidentally [stumbled across the Songs of the Suffering Servant](../on-mistake/){:target="_blank"} in the Book of Isaiah in the Hebrew Bible. I realised that the suffering servant is a more fitting description for me than our Lord and Saviour Jesus Christ when He showed up 2,000 years ago. To save you from reading through the [239 posts](../../timeline/){:target="_blank"} I wrote since the end of October, I will provide some quick references here to prove my claim.
 
 FYI, I have been fulfilling prophecies in scripture on a small scale even before I read about them. I still nearly poop myself every time that happens.
 
