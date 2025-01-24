@@ -2,6 +2,7 @@
 title: On Love, Faith and Hope
 date: 2025-01-04 17:25:12 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
+pin: true
 ---
 
 If I were to summarise the biggest lesson I learned last year, then that would be the relationship between love, faith and hope.
@@ -10,7 +11,7 @@ My subjective observation so far is that people without faith are generally love
 
 Loveless in that they wouldn't even spare a cup of coffee when I'm at the lowest point of my life and in desperate need of a little help. This was made worse by the fact that I had been faithful to them in our relationships up to the point I asked for help. I simply could not comprehend why they could just turn their backs as though they did not know me.
 
-Hopeless in that faithlessness essentially led to the illness of nihilism. If you are unaware you are ill then you should read more books. Everyone simply blames the coldness of this world on that's how things are and becomes indifferent to the suffering of others. Since everyone will die at the end, why not enjoy it as much as I can and fuck others right?
+Hopeless in that faithlessness essentially led to the [illness of nihilism](../on-nihilism/){:target="_blank"}. If you are unaware you are ill then you should read more books. Everyone simply blames the coldness of this world on that's how things are and [becomes indifferent to the suffering of others](../on-indifference/){:target="_blank"}. Since everyone will die at the end, why not enjoy it as much as I can and fuck others right?
 
 As mentioned in my previous post titled “[On the Equation of Love](../on-equation-love){:target="_blank"}”, I came up with an equation to quantify love when I was 16. It's the greatest amount of sacrifice one is willing to make. If you ask any father how much they are willing to sacrifice for their child, my guess is they would give up their own life at any time without hesitation.
 
