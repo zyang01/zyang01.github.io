@@ -5,7 +5,7 @@ tags: [christbro,bible,salvation,psychology,horror,evil]     # TAG names should 
 pin: true
 ---
 
-In the first 27 years of my life, I barely murmured any of the strong language I used in my [recent 246 posts](../../timeline){:target="_blank"} in front of anyone who knew me personally. Despite the countless suggestions from people I respect to tone down the language, I decided to keep the good, the bad, and the ugly due to the fakeness I discovered in this 122-day journey of faith.
+In the first 27 years of my life, I barely murmured any of the strong language I used in my [recent 246 posts](../../timeline){:target="_blank"} in front of anyone who knew me personally. Despite the [countless suggestions](../on-appearances/){:target="_blank"} from people I respect to tone down the language, I decided to keep the good, the bad, and the ugly due to the fakeness I discovered in this 122-day journey of faith.
 
 The week after [getting kicked out of the gay/bi-naturist campsite Rosebay](https://joeatrosebay.com/){:target="_blank"}, I could barely speak a complete sentence, and I had to take extremely long pauses every couple of words when I was talking to my parents over video calls. My mind was spinning at 1,000% capacity for nearly an entire month, and I replayed everything in my mind for those three months at the campsite. I altered every possible variable my mind could remember to discover what went wrong and how the ethical thought experiment I designed during COVID came true in real life.
 
