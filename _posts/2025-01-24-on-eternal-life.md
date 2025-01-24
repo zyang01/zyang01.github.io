@@ -11,7 +11,7 @@ On Monday evening, I attended [a discussion on God's existence organised by the 
 
 They also had difficulty seeing God's work in their life and the world. I suggested that they keep an open mind and give Him a chance to show them His love. I don't think we could ever accurately describe an omnipotent being since we are, by definition, not omnipotent, but if I had to choose one word to describe Him, then it would be love.
 
-The legendary [Mr Noisy Gong](../on-noisy-gong/){:target="_blank"} once said love bears all things, believes all things, hopes all things, endures all things. For me, knowing Him is knowing Love, and knowing Love is knowing Him. Do you know Love? Do you believe? Do you have hope?
+The legendary [Mr Noisy Gong](../on-noisy-gong/){:target="_blank"} once said love bears all things, believes all things, hopes all things, endures all things. **For me, knowing Him is knowing Love, and knowing Love is knowing Him.** Do you know Love? Do you believe? Do you have hope?
 
 ---
 
