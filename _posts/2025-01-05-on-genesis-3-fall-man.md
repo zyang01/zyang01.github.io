@@ -19,7 +19,7 @@ How do we know eating from the tree of the knowledge of good and evil will make 
 
 The entire Bible only mentions the tree of the knowledge of good and evil in Genesis 2 and 3 and the only thing God said will happen if we eat from it is we will die.
 
-It seems to me that most people don't know how to spell good and evil let alone how to define them anymore. Everyone believes we are gonna die anyway, so whatever right?
+It seems to me that most people [don't know how to spell good and evil](../on-indifference/){:target="_blank"} let alone how to define them anymore. Everyone believes we are gonna die anyway, so whatever right?
 
 The serpent was crafty indeed.
 
