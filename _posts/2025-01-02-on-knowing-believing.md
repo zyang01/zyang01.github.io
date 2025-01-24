@@ -8,7 +8,7 @@ I had a brief discussion on the difference between knowing and believing with my
 
 I told him there were only two things I knew. I know He exists and I exist (cogito, ergo sum. I think therefore I am). I argued that true objectivity is unattainable as a human being and that everything we observe and output is subjective views by individual experiences in space-time. Objectivity is only possible for an omnipotent being. I don't think we even know what the word omnipotence truly means since we are by definition not omnipotent. We have a word for it but know nothing more than that.
 
-Now that I'm recovering from my severe hangover, I realise there is a third thing that I know.
+Now that I'm recovering from [my severe hangover](../on-thomas/){:target="_blank"}, I realise there is a third thing that I know.
 
 I know He exists, I exist, and He loves me.
 
