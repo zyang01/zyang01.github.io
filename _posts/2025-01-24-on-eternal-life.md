@@ -2,9 +2,10 @@
 layout: post
 title: On Eternal Life
 date: 2025-01-24 01:05 +0000
+pin: true
 ---
 
-If you think the motive behind my faith is eternal life, all I can tell is that I wanted to nap for eternity every other day throughout this journey [because of people](../on-i/){:target="_blank"}. I tried to take my first proper holiday in April last year, and [some motherfuckers decided to fuck it up](../on-my-language/){:target="_blank"} for me. The only thing that kept me going and raised my spirit every time was His love.
+If you think the motive behind my faith is [eternal life](../on-afterlife/){:target="_blank"}, all I can tell is that I wanted to nap for eternity every other day throughout this journey [because of people](../on-i/){:target="_blank"}. I tried to take my first proper holiday in April last year, and [some motherfuckers](../on-my-language/){:target="_blank"} decided to [fuck it up for me](../on-love-death/){:target="_blank"}. The only thing that kept me going and raised my spirit every time was His love.
 
 On Monday evening, I attended [a discussion on God's existence organised by the King's College London Philosophy Society](../on-what-i-want/){:target="_blank"} and chatted with a couple of attendees. One of them wanted to know why a righteous God would allow the existence of sin and evil in this world. My answer to that was disobedience. It was not God who brought sin to this world; it was our disobedience and rebellion that allowed and sustained the existence of sin and suffering. I also told them that I would have thrown myself out of the balcony more than a dozen times now if I didn't have Him.
 

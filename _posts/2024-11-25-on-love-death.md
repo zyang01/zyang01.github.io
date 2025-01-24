@@ -2,15 +2,16 @@
 title: On Love and Death
 date: 2024-11-25 06:39:21 +0000
 tags: [christbro,bible,salvation,love]     # TAG names should always be lowercase
+pin: true
 ---
 
-For about two weeks after I got kicked out of the gay/bi naturist campsite rosebay, I couldn't bear staying at home alone and just wanted to be around people, but at the same time, I also didn't want to talk to anyone because my brain was spinning at 1,000% capacity trying to figure out what went wrong at the campsite. There is a 24-hour gay sauna in Soho, London and I spent a lot of time there.
+For about two weeks after I got [kicked out of the gay/bi naturist campsite rosebay](https://joeatrosebay.com/){:target="_blank"}, I couldn't bear staying at home alone and just wanted to be around people, but at the same time, I also didn't want to talk to anyone because my brain was spinning at 1,000% capacity trying to figure out what went wrong at the campsite. There is a 24-hour gay sauna in Soho, London and I spent a lot of time there.
 
 I was standing on Oxford Street one day after figuring out why it hurt that much to get kicked out. I realised it was because I loved them. I loved the couple who owned the campsite, and I saw John as my adopted father. I loved my neighbours at the campsite. And I absolutely freaking loved the campsite, that's why I bought a brand new caravan, moved in within two weeks, and gave them free wifi in the first place.
 
 I learned a great deal of new skills in those three months, including but not limited to camping, caravaning, electrics, drilling, and 3D printing. I had two 3D printers delivered to the campsite and was printing PLA-CF Starlink supports.
 
-I was standing on Oxford Street that evening, looking at the strangers walking by, and I realised I loved this world and everything that was in it after picking a fight with nature for three months. I asked myself how much I love this world, and using the equation of love as discussed in my previous post titled “On the Equation of Love”, I realised for a very brief moment that I was willing to take a bullet for any stranger that was walking past me. I think I felt His love for the first time at that exact moment.
+I was standing on Oxford Street that evening, looking at the strangers walking by, and I realised I loved this world and everything that was in it after picking a fight with nature for three months. I asked myself how much I love this world, and using the equation of love as discussed in my previous post titled “[On the Equation of Love](../on-equation-love/){:target="_blank"}”, I realised for a very brief moment that I was willing to take a bullet for any stranger that was walking past me. I think I felt His love for the first time at that exact moment.
 
 Although, love does require a great deal of courage sometimes. If you were to ask me to go downstairs right now and take a bullet for a random stranger, I would tell you to piss off. 🥹
 
