@@ -71,7 +71,7 @@ Don't worry—I will not touch a single hair on anyone. You can say I have a dea
 
 Matthew 24:14
 
-And this gospel of the kingdom shall be preached in all the world for a witness unto all nations; and then shall the end come.
+[14] And this gospel of the kingdom will be proclaimed throughout the whole world as a testimony to all nations, and then the end will come. (ESV)
 
 ![](/wtioeksFnabjH8oc.png)
 
