@@ -21,3 +21,9 @@ Suppose you still want to argue about the possibility of eternal life for argume
 Descartes' Meditations of First Philosophy [employed methodic doubt](https://en.wikipedia.org/wiki/Meditations_on_First_Philosophy#:~:text=In%20general%2C%20his%20method%20is,then%20my%20beliefs%20are%20unreliable){:target="_blank"} and is arguably the granddaddy of modern scientific methods. Could I make a personal plea for you to [shut the fuck up](../on-my-language/){:target="_blank"} and educate yourself before spewing out illogical nonsense for the sake of attention? Thank you.
 
 I'm sorry for the choice of language again. I'm screaming partly for my own enjoyment and partly for their benefit. They might not be complete idiots; salvation could still be possible with some shouting.
+
+Edit: add more reading material for the [stupid fucking idiots](../on-my-language/){:target="_blank"} since no one really does real shit any more and needs to be spoon-fed.
+
+If you are:
+- "science" only: [Boltzmann brain](https://en.wikipedia.org/wiki/Boltzmann_brain){:target="_blank"}, [Simulation hypothesis](https://en.wikipedia.org/wiki/Simulation_hypothesis){:target="_blank"}
+- reasonable, sensible and rational: [Allegory of the cave](https://en.wikipedia.org/wiki/Allegory_of_the_cave){:target="_blank"}, [Brain in a vat](https://en.wikipedia.org/wiki/Brain_in_a_vat){:target="_blank"}, [Solipsism](https://en.wikipedia.org/wiki/Solipsism){:target="_blank"}
