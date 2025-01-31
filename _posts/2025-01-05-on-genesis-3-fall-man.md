@@ -23,6 +23,10 @@ It seems to me that most people [don't know how to spell good and evil](../on-in
 
 The serpent was crafty indeed.
 
+24 Jan 2025 edit: the thing the serpent gave the woman was doubt.
+
+31 Jan 2025 edit: At no point did I say to ditch reason. The woman would not have been able to rebuke the serpent without the ability to reason on the first attempt. **The key is the order of precedence.** The right order is God before reason rather than reason before God. Reason before God is impossible; if you prioritise reason, then you not only lose God, you also [lose reason and end up with nothing](../on-faith-precedes-reason/){:target="_blank"}, otherwise known as [nihilism and death](../on-we-all-die/){:target="_blank"}.
+
 Genesis 3:1-6
 
 The Fall
@@ -30,7 +34,5 @@ The Fall
 [1] Now the serpent was more crafty than any other beast of the field that the LORD God had made.
 
 He said to the woman, “Did God actually say, ‘You shall not eat of any tree in the garden’?” [2] And the woman said to the serpent, “We may eat of the fruit of the trees in the garden, [3] but God said, ‘You shall not eat of the fruit of the tree that is in the midst of the garden, neither shall you touch it, lest you die.’” [4] But the serpent said to the woman, “You will not surely die. [5] For God knows that when you eat of it your eyes will be opened, and you will be like God, knowing good and evil.” [6] So when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of its fruit and ate, and she also gave some to her husband who was with her, and he ate.
-
-Edit: the thing the serpent gave the woman was doubt.
 
 ![](/JfMJFax8qvLnzDjn.jpg)
