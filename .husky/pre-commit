@@ -1,0 +1,20 @@
+#!/bin/sh
+
+echo "Running Jekyll build and HTMLProofer check..."
+
+# Step 1: Build the Jekyll site
+JEKYLL_ENV=production bundle exec jekyll build
+if [ $? -ne 0 ]; then
+  echo "Jekyll build failed. Commit aborted."
+  exit 1
+fi
+
+# Step 2: Run HTMLProofer on the _site folder
+bundle exec htmlproofer _site --disable-external
+if [ $? -ne 0 ]; then
+  echo "HTMLProofer check failed. Commit aborted."
+  exit 1
+fi
+
+echo "All checks passed. Proceeding with commit."
+exit 0
