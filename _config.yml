@@ -14,7 +14,7 @@ timezone: Europe/London
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: Jonah @ He Said Love # the main title
+title: Aaron @ He Said Love # the main title
 
 tagline: Writing about Boss Man's love and the good, bad, ugly, stupid, idiotic, crazy, and insane during my walk with Him. Dude made me feel more loved in a week than anyone, including my parents, ever managed to make me feel my entire life combined. Believed since 22 September 2024. Zeal for His house consumes me. # it will display as the subtitle
 
@@ -29,17 +29,17 @@ github:
   username: zyang01 # change to your GitHub username
 
 twitter:
-  username: HiJonahDotCom # change to your Twitter username
+  username: # change to your Twitter username
 
 social:
   # Change to your full name.
   # It will be displayed as the default author of the posts and the copyright owner in the Footer
-  name: Jonah Troublemaker Yang
-  email: Jonah@HeSaid.Love # change to your email address
+  name: Aaron Yang
+  email: Aaron@HeSaid.Love # change to your email address
   links:
     # The first element serves as the copyright owner's link
-    - https://www.linkedin.com/in/jonah-troublemaker-yang/
-    - https://twitter.com/HiJonahDotCom # change to your Twitter homepage
+    - https://www.linkedin.com/in/
+    - https://twitter.com/ # change to your Twitter homepage
     - https://github.com/zyang01 # change to your GitHub homepage
     # Uncomment below to add more social links
     # - https://www.facebook.com/username
