@@ -91,6 +91,6 @@ Matthew 23:13
 
 ---
 
-**If you are a faithful Israelite mentioned above, I would love to practice throwing stones at some blasphemous false teachers together once you have brought Mosaic Law and the death penalty back. I will go happily and willingly after the false teachers and meet my Lord and Saviour Jesus Christ as a rampant homosexual, a regular at Horse Fair by Jamie HP, FickstutenMarkt in Berlin, and Lab.oratory in the basement of Berghain.**
+**If you are a faithful Israelite mentioned above, I would love to practice throwing stones at some blasphemous false teachers together once you have brought Mosaic Law and the death penalty back. I will go happily and willingly to meet my Lord and Saviour Jesus Christ after the false teachers as a rampant homosexual, a regular at Horse Fair by Jamie HP, FickstutenMarkt in Berlin, and Lab.oratory in the basement of Berghain.**
 
 **Need to get back to a couple of gay porn studios on some applications. The rent is four months overdue now.**
