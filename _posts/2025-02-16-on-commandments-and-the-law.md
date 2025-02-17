@@ -42,3 +42,7 @@ Witnesses to Jesus
 John 15:12–17
 
 [12] “This is my commandment, that you love one another as I have loved you. [13] Greater love has no one than this, that someone lay down his life for his friends. [14] You are my friends if you do what I command you. [15] No longer do I call you servants, for the servant does not know what his master is doing; but I have called you friends, for all that I have heard from my Father I have made known to you. [16] You did not choose me, but I chose you and appointed you that you should go and bear fruit and that your fruit should abide, so that whatever you ask the Father in my name, he may give it to you. [17] These things I command you, so that you will love one another. (ESV)
+
+---
+
+Edit: I sent [this email](https://dl.hesaid.love/due-diligence-email.pdf){:target="_blank"} after this post was published. I have a couple more to-do items and then I believe according to the Old Testament, I have an announcement to make along with a couple of other miscellaneous items. **Consider this tables overturned and you've been served.**
