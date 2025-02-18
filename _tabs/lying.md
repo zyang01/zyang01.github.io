@@ -16,7 +16,7 @@ If any esteemed hypocrites tell you God hates you because of who you are or what
 
 Everything can be simplified down to two rules and assuming you did not fail your logical reasoning and reading comprehension in school then you should be able to deduce the following. Don't be a cunt.
 
-Whatever it is that you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand and we see the abomination of desolation that is modern academia and higher education today. Stupid cunts who could neither reason nor read are comparing theology with unicorns and fairytales.
+Whatever it is that you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand and we see the abomination of desolation that is modern academia and higher education today. Stupid cunts who could neither reason nor read are comparing theology with the study of unicorns and fairytales.
 
 God is the Father, the Son, and the Holy Spirit. Most importantly, God is love. Love is the greatest amount of sacrifice one is willing to make. Just ask a father what they are willing to sacrifice for their child.
 
@@ -49,3 +49,5 @@ Matthew 22:34–40
 The Great Commandment
 
 [34] But when the Pharisees heard that he had silenced the Sadducees, they gathered together. [35] And one of them, a lawyer, asked him a question to test him. [36] “Teacher, which is the great commandment in the Law?” [37] And he said to him, “You shall love the Lord your God with all your heart and with all your soul and with all your mind. [38] This is the great and first commandment. [39] And a second is like it: You shall love your neighbor as yourself. [40] On these two commandments depend all the Law and the Prophets.” (ESV)
+
+![](/x7PwBJs5Kzs2yCz3S2.jpg)
