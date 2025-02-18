@@ -17,7 +17,7 @@ If any esteemed hypocrites tell you God hates you because of who you are or what
 
 Everything can be simplified down to two rules and assuming you did not fail your logical reasoning and reading comprehension in school then you should be able to deduce the following. Don't be [a cunt](../posts/on-commandments-and-the-law#definition-of-a-cunt){:target="_blank"}.
 
-Whatever it is that you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand and we see the abomination of desolation that is modern academia and higher education today. Stupid cunts who could neither reason nor read are comparing theology with the study of unicorns and fairytales.
+Whatever it is that you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand and we see the abomination of desolation that is [modern academia and higher education](../posts/on-faith-precedes-reason/){:target="_blank"} today. Stupid cunts who could neither reason nor read are comparing theology with the study of unicorns and fairytales.
 
 God is the Father, the Son, and the Holy Spirit. Most importantly, God is love. Love is the greatest amount of sacrifice one is willing to make. Just ask a father what they are willing to sacrifice for their child.
 
