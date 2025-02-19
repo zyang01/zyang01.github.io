@@ -75,7 +75,7 @@ Matthew 23:13
 
 ---
 
-**If you still want to ask about 1 Corinthians 6:9 or 1 Timothy 1:9 after the above, then I suspect you failed not only maths and sciences but also reading comprehension in school. Your teacher should have taught you to read the fucking context you fucking moron. Are you clean enough to single my community out and judge by labelling us an abomination and shutting the kingdom of heaven in our faces when we seek Him?**
+**If you still want to ask about 1 Corinthians 6:9 or 1 Timothy 1:10 after the above, then I suspect you failed not only maths and sciences but also reading comprehension in school. Your teacher should have taught you to read the fucking context you fucking moron. Are you clean enough to single my community out and judge by labelling us an abomination and shutting the kingdom of heaven in our faces when we seek Him?**
 
 ---
 
