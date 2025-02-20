@@ -47,9 +47,9 @@ I arrived at the gay/bi-naturist Rosebay campsite 45 weeks ago.
 
 ## Backups
 
-[antichrist.boo](https://666.antichrist.boo){:target="_blank"}
+[666.antichrist.boo](https://666.antichrist.boo){:target="_blank"}
 
-[IPFS (feel free to pin the CID)](ipfs://bafybeidtlnrrsjc7fip6gfxn2daswiwggsmcvtjigtjai57hdkzyptkhc4/){:target="_blank"} ipfs://bafybeidtlnrrsjc7fip6gfxn2daswiwggsmcvtjigtjai57hdkzyptkhc4
+[IPFS (feel free to pin the CID)](ipfs://bafybeies6vl2tm5ibnbdl44x3jzw2blmycpzmhzggikgm2j5w4l3kilq2m){:target="_blank"} ipfs://bafybeies6vl2tm5ibnbdl44x3jzw2blmycpzmhzggikgm2j5w4l3kilq2m
 
 ---
 
