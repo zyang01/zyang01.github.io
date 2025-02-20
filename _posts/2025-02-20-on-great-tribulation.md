@@ -5,6 +5,8 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
+Edit: [in case](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"} you are so fucking stupid and ignorant to not know you are losing your job within 2 years if you don't have a degree more complicated than computer science.
+
 See ya on judgement day. Might be a good idea to get Amazon Prime. 🙏😅😂
 
 Just a quick reminder in case some stupid cunts want to try some idiotic shit. Ask yourselves if you know how to spell Boss Man's name first. I would advise you to save it, but sometimes you simply cannot stop stupid fucking cunts.
