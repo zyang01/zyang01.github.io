@@ -57,6 +57,10 @@ I arrived at the gay/bi-naturist Rosebay campsite 45 weeks ago.
 
 Will write more later. Just a quick announcement for now.
 
+In case you didn't get it, [higher education](../on-he-as-aod/){:target="_blank"} is full of spiritually desolate late-teenage to early-twenties [nihilists](../on-we-all-die/){:target="_blank"}/[anarchists](../on-indifference/){:target="_blank"} with [drug addictions](../on-drug-money-addiction/){:target="_blank"} and they can [neither reason nor read](../on-faith-precedes-reason/){:target="_blank"}.
+
+**And no, I'm not the messiah. I'm just a servant running around preparing the homecoming party for Boss Man.**
+
 Enjoy and Happy New Year if you are not a faithless motherfucking cunt. 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
 
 ---
