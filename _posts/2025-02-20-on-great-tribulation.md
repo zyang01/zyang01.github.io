@@ -5,9 +5,25 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
-**Edit: I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
+**Edit 2: I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
 
-Edit: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
+Edit 3: I just realised something quite unfortunate that I never understood before in The Final Judgement. I had always wondered why repeated the same pattern in Matthew 25:44 given the same was said in more detail through Matthew 25:37-39, and **why would they not recognise the Lord when they believed they knew the Lord**. I think they are there through cumbersome elaborateness to make me realise the scribes and Pharisees who did not bother to look into the evidence before referring me to mental health services are exactly the ones who won't recognise the Lord. **I'm not saying I'm the Lord, I'm saying they never knew the Lord in the first place and if they would not allow someone like me to even present the evidence that I have encountered the Lord, how could they possibly recognise the Lord when He comes back?**
+
+**This is first-degree self-deception caught in the act, unfortunately. Karma is a bitch, but I sincerely hope I'm not the fucking messiah for their sake and there is still time for them to repent.**
+
+---
+
+Matthew 25:31–46
+
+The Final Judgment
+
+[31] “When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. [32] Before him will be gathered all the nations, and he will separate people one from another as a shepherd separates the sheep from the goats. [33] And he will place the sheep on his right, but the goats on the left. [34] Then the King will say to those on his right, ‘Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world. [35] For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, [36] I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me.’ [37] Then the righteous will answer him, saying, ‘Lord, when did we see you hungry and feed you, or thirsty and give you drink? [38] And when did we see you a stranger and welcome you, or naked and clothe you? [39] And when did we see you sick or in prison and visit you?’ [40] And the King will answer them, ‘Truly, I say to you, as you did it to one of the least of these my brothers, you did it to me.’
+
+[41] “Then he will say to those on his left, ‘Depart from me, you cursed, into the eternal fire prepared for the devil and his angels. [42] For I was hungry and you gave me no food, I was thirsty and you gave me no drink, [43] I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in prison and you did not visit me.’ [44] Then they also will answer, saying, ‘Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you?’ [45] Then he will answer them, saying, ‘Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me.’ [46] And these will go away into eternal punishment, but the righteous into eternal life.” (ESV)
+
+---
+
+Edit 1: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
 See ya on judgement day. Might be a good idea to get [Amazon Prime](https://www.gotquestions.org/famine-hearing-words-Lord.html){:target="_blank"}. 🙏😅😂
 
