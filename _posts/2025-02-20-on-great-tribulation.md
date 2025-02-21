@@ -5,6 +5,46 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
+### Edit 5
+
+This post is to announce the end of the great tribulation. And to proclaim the Day of the Lord and the year of the Lord’s favour as described in humanity’s bestseller the Holy Bible. Unlike most people, I did not trust myself even once in the last 28 years of my life. Yet, I stand by every single word I wrote down in all blog posts in accurately expressing the sentiment and the severity of the situations, no matter how ridiculous, ugly, profane or even blasphemous you might find my language in your measurement.
+
+I have read less than 25% of the Holy Bible and I believe you can resolve the questions you might have regarding my posts using only the Holy Bible. I don’t know if I’m telling the truth. I believe I’m telling the truth, the whole truth and nothing but the truth to a degree that I as a mere mortal human being am capable of grasping. If you are unable to clarify any questions you have, ask our Lord and Saviour, Jesus Christ, don’t ask me. I don’t know and I don’t lean on my own understanding. I found the best choice. I trust my Lord and Saviour Jesus Christ and that’s more than sufficient for me, even if that means I will stand trial in front of God almighty, burn in hell for eternity and be condemned by every single human being on this earth. I believe I have a clear conscience in front of God. I don’t know and I don’t need to know. I have confirmation from the Holy Spirit and will happily accept whatever judgment He has for me.
+
+My question for you is this. Can you bear to finish reading my posts before you come up with your own judgment and inform me about your opinion, or simply give up? My educated guess is those who can are few. You don't need to reply. This is not about me. This is about your salvation and between you and Him.
+
+---
+
+Matthew 7:13–14
+
+[13] “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. [14] For the gate is narrow and the way is hard that leads to life, and those who find it are few. (ESV)
+
+---
+
+P.S. This edit was originally for the mistake I found when going back to cross-check the things I wrote in this post, given how outrageous the claims I'm making are. The mistake I found is pretty big. The videos I watched during COVID-19 to learn about quantum physics and relevant epistemological/philosophical arguments that inspired my subsequent thinking in existentialism, nihilism and antinatalism are in fact from the World Science Festival rather than World Science Forum. I must jumped after my findings and didn't realise this WSF is not that WSF. YouTube will show me the World Science Festival if I search World Science Forum. I thought about whether I should correct that and asked the Holy Spirit. I remembered this passage from the legendary Mr Noisy Gong.
+
+---
+
+Romans 8:26–30
+
+[26] Likewise the Spirit helps us in our weakness. For we do not know what to pray for as we ought, but the Spirit himself intercedes for us with groanings too deep for words. [27] And he who searches hearts knows what is the mind of the Spirit, because the Spirit intercedes for the saints according to the will of God. [28] And we know that for those who love God all things work together for good, for those who are called according to his purpose. [29] For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. [30] And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified. (ESV)
+
+---
+
+![](/TqrCp3s2K06SRSRxnn.jpg)
+
+However, the mistake is so big and embarrassing that Mr Noisy Gong, a.k.a. Apostle Paul's words are not enough. So here is my Lord and Saviour Jesus Christ with a tiny shove by Spotify.
+
+Matthew 19:26
+
+[26] But Jesus looked at them and said, “With man this is impossible, but with God all things are possible.” (ESV)
+
+![](/3hmAKxqyxthJJrzaFF.png)
+
+![](/VRF7AMjKSg6g6MrFMx.png)
+
+I decided not to worry about it and go play. I think it's fair to say I have worried enough for everyone now and some people can take some responsibilities and worry for themselves. They don't seem to spend much time worrying for others anyway. I don't know what they do all day, to be honest, other than taking selfies.
+
 ### Edit 2
 
 **I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
