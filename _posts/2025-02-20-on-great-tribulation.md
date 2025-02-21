@@ -5,11 +5,11 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
-Edit: [in case](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"} you are so fucking stupid and ignorant to not know you are losing your job within 2 years if you don't have a degree more complicated than computer science.
+Edit: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
 See ya on judgement day. Might be a good idea to get Amazon Prime. 🙏😅😂
 
-Just a quick reminder in case some stupid cunts want to try some idiotic shit. Ask yourselves if you know how to spell Boss Man's name first. I would advise you to save it, but sometimes you simply cannot stop stupid fucking cunts.
+Just a quick reminder in case some stupid cunts want to try some idiotic shit. Ask yourselves if you know how to spell Boss Man's name first. I would advise you to save it, but sometimes you simply cannot stop stupid fucking cunts. [Kill shot only](../on-overemployment){:target="_blank"} otherwise I personally guarantee you will be more thoroughly fucked than [this](../on-sexual-theology/){:target="_blank"}.
 
 ---
 
@@ -55,13 +55,47 @@ I arrived at the gay/bi-naturist Rosebay campsite 45 weeks ago.
 
 ---
 
-Will write more later. Just a quick announcement for now.
+In case you didn't get it, [higher education](../on-he-as-aod/){:target="_blank"} is full of spiritually desolate late-teenage to early-twenties [nihilists](../on-we-all-die/){:target="_blank"}/[anarchists](../on-indifference/){:target="_blank"} with [drug addictions](../on-drug-money-addiction/){:target="_blank"} and they can [neither reason nor read](../on-faith-precedes-reason/){:target="_blank"}. Institutions proclaiming to dedicate their time and resources to the truth are interested in nothing other than more drugs (a.k.a. money and business schools), the school of philosophy has already fallen under the four horsemen existentialism, nihilism, antinatalism and death as always, and the [stupid mother fucking egomaniacs](../on-faith-precedes-reason/){:target="_blank"} hiding behind jargon and publications have the mother fucking audacity to compare theology with the study of unicorns and fairytales.
 
-In case you didn't get it, [higher education](../on-he-as-aod/){:target="_blank"} is full of spiritually desolate late-teenage to early-twenties [nihilists](../on-we-all-die/){:target="_blank"}/[anarchists](../on-indifference/){:target="_blank"} with [drug addictions](../on-drug-money-addiction/){:target="_blank"} and they can [neither reason nor read](../on-faith-precedes-reason/){:target="_blank"}.
+I found the gentleman and the abomination above via the [World Science Forum](https://worldscienceforum.org/){:target="_blank"}. I learned most of my quantum physics and relevant epistemological/philosophical knowledge by watching their videos on YouTube during COVID-19. All of my subsequent thinking and reasoning concerning existentialism, nihilism and antinatalism can all be attributed back to them. **The only way I found to overcome the terminal illness of nihilism is by voluntarily taking up your cross (responsibilities) and following Him. Otherwise, whether I choose to throw myself out of the balcony today is as meaningless as whether I choose to pick up a knife and stab someone as long as I can get away with it under the law.**
 
-**And no, I'm not the messiah. I'm just a servant running around preparing the homecoming party for Boss Man.**
+I found the 46-page manifesto in the UNESCO Digital Library above via [the history page of the World Science Forum](https://worldscienceforum.org/contents/history-of-world-science-forum-110010){:target="_blank"}. The impression I got after quickly scrolling through the document was it made a ton of bold claims on ethics and essentially by saying scientific knowledge alone can bring good to humanity. The only thing it left out? God. Do we know how to spell good and evil? I don't know.
 
-Enjoy and Happy New Year if you are not a faithless motherfucking cunt. 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+I found a certain gentleman who may or may not have been mentioned in this post and he dedicated rather generously his time and effort to the various scientific organisations behind the scenes, which I found to be rather interesting for a direct descendent of a well-known figure who allegedly was a prophet and messenger of God, but I couldn't seem to find the name in humanity's bestseller, which I consider to be telling the truth, the whole truth and nothing but the truth. The gentleman certainly has an appetite to cross fields including politics. Kinda like me, but I'm confident my fellow pretentious Oxford alumni are more than capable of fucking the world up and it would be wise to dedicate my time instead to futile pursuits such as salvation.
+
+**And no, I'm not the fucking messiah. I'm just a servant running around preparing the homecoming party for Boss Man.** Although, I genuinely don't know what some self-proclaimed Christians are thinking most of the time. Throughout this journey, I wanted nothing other than someone to slap me the fuck awake with the annoyingly thick humanity's bestseller, they did everything including referring me to mental health services and suggesting I must be an egomaniac **except** looking at the evidence I was serving up on a platter and reason with me. None of them reply to my messages and emails anymore.
+
+I wonder if they truly want the messiah or not, and why the fuck is everyone just sitting around waiting for the one fucking messiah? Do you know how big of a fucking job that is for Boss Man and how much did each of us contribute after 2,000 fucking years? If I was in Boss Man's shoes then I would rather just let this fucking wicked world burn while I Netflix and chill than save a bunch of lazy ass mother fuckers who neither reason nor read.
+
+How about you do your part, I do mine, Boss Man does His and let's find out on the other side what we are?
+
+Happy New Millennium if you are not [an unfaithful motherfucking cunt](../on-commandments-and-the-law/#definition-of-a-cunt){:target="_blank"} **AND** most importantly not a self-proclaimed "believer" who doesn't want Boss Man to come back.
+
+---
+
+## [Rivers - Song by Thomas Jack](https://www.youtube.com/watch?v=sqYEvGr372M){:target="_blank"}
+
+We're like rivers in the night<br>
+I go left and you go right<br>
+We'll find out on the other side<br>
+Who we are, who we are<br>
+Wish me luck and give me hope<br>
+Give me sunlight to my day<br>
+Turn it into gold<br>
+Carry on, carry on<br>
+
+We'll take these broken souls<br>
+Make them as good as new<br>
+Bind it together into something we could never lose<br>
+We're rivers in the night<br>
+I go left and you go right<br>
+We'll find out on the other side<br>
+Who we are, who we are<br>
+
+We can make it onto something beautiful<br>
+Yeah, we don't have to try<br>
+We can make it into something wonderful<br>
+We'll never say goodbye<br>
 
 ---
 
