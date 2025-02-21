@@ -5,9 +5,15 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
-**Edit 2: I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
+### Edit 2
 
-Edit 3: I just realised something quite unfortunate that I never understood before in The Final Judgement. I had always wondered why repeated the same pattern in Matthew 25:44 given the same was said in more detail through Matthew 25:37-39, and **why would they not recognise the Lord when they believed they knew the Lord**. I think they are there through cumbersome elaborateness to make me realise the scribes and Pharisees who did not bother to look into the evidence before referring me to mental health services are exactly the ones who won't recognise the Lord. **I'm not saying I'm the Lord, I'm saying they never knew the Lord in the first place and if they would not allow someone like me to even present the evidence that I have encountered the Lord, how could they possibly recognise the Lord when He comes back?**
+**I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
+
+---
+
+### Edit 3
+
+I just realised something quite unfortunate that I never understood before in The Final Judgement. I had always wondered why repeated the same pattern in Matthew 25:44 given the same was said in more detail through Matthew 25:37-39, and **why would they not recognise the Lord when they believed they knew the Lord**. I think they are there through cumbersome elaborateness to make me realise the scribes and Pharisees who did not bother to look into the evidence before referring me to mental health services are exactly the ones who won't recognise the Lord. **I'm not saying I'm the Lord, I'm saying they never knew the Lord in the first place and if they would not allow someone like me to even present the evidence that I have encountered the Lord, how could they possibly recognise the Lord when He comes back?**
 
 **This is first-degree self-deception caught in the act, unfortunately. Karma is a bitch, but I sincerely hope I'm not the fucking messiah for their fucking sake and there is still time for them to repent.**
 
@@ -25,7 +31,27 @@ The Final Judgment
 
 ---
 
-Edit 1: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
+### Edit 4
+
+[Fuck me](https://dl.hesaid.love/love_not_lust.mp4){:target="_blank"}. I just realised the implications of what I had just proved in Edit 3. Now I find [Malachi 3:1 even more annoying](../on-background-music/#malachi-3-1){:target="_blank"} and have zero desire to laugh. It does not feel great when you find out you are the fool all along, right? 🤡
+
+Since we have announced the **year of the Lord's favour** below, might as well do the **Day of the Lord** together. I seem to always run ahead of Boss Man and keep tripping over. I thought the Day of the Lord was why He told me to go to Israel last month. You can find out what happened by looking up the relevant posts yourself and I'm going to stop putting effort into hyperlinking everything. It takes a fuck ton of effort and barely anyone read my posts if I didn't sprinkle the nations to shove my posts to your fucking faces. And the fucking scribes and Pharisees did not [fucking bother to reply](https://dl.hesaid.love/scribes_and_pharisees.pdf){:target="_blank"} to any single fucking email other than the first couple fucking courtesy responses.
+
+You can find out what happens on the day yourself and for the first time in my life, I think I'm seriously going to not bother this time and you can all go fuck yourselves. I thought Malachi 3:2 might not mean what people think they mean when I read it last month in Israel. The only thing I have left to say is Dude's math is confusing AF and I technically dropped out of my maths and CS degree after only one term so I know dick about math either. I know dick about how long the Day of the Lord is, could be one day, one week, one month or one year, but I suspect it won't be longer than one year otherwise why have the Day of the Lord and the year of the Lord's favour? You will know what I'm on about if you seriously tried reading humanity's bestseller before. Ask Boss Man if you really wanna know, I'm not gonna bother and I'm certain I will have at least 10x more fun watching people get what they deserve while getting surprised by the King of Drama and Horror, wouldn't you agree? I think it's called justice and righteousness and I hope that's how you spell them since I haven't seen those two words for a while now. Just need to find a couple of faithful new friends, never bold enough to watch horror movies myself and ideally they have a comfy sofa I can crash on.
+
+If you are a faithful believer, then congratulations. Happy New Millennium and you are more than welcome.
+
+If you are [an unfaithful motherfucking cunt](../on-commandments-and-the-law/#definition-of-a-cunt){:target="_blank"}, [go fuck yourself](https://dl.hesaid.love/love_not_lust.mp4){:target="_blank"}. 🖕
+
+I'm gonna Bible and chill. Have read probably less than 25% of the thick-ass bestseller. Only flipped through Genesis and up to Exodus 10ish one evening late last year out of the 5 books of The Law.
+
+![](/qvsGSPQhsuPSTfJV1p.png)
+
+---
+
+### Edit 1
+
+In case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
 See ya on judgement day. Might be a good idea to get [Amazon Prime](https://www.gotquestions.org/famine-hearing-words-Lord.html){:target="_blank"}. 🙏😅😂
 
