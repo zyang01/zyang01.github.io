@@ -2,7 +2,7 @@
 title: On My Salvation
 date: 2024-10-28 09:48:49 +0000
 tags: [nsfw,christbro,salvation]     # TAG names should always be lowercase
-pin: true
+
 ---
 
 Not too bothered to setup a WordPress site. Just gonna share some thoughts that may appear somewhat schizophrenic here. Not interested in convincing anyone, but happy to engage in respectful discussions.

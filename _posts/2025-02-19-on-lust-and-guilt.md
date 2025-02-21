@@ -2,7 +2,7 @@
 layout: post
 title: On Lust and Guilt
 date: 2025-02-19 04:07 +0000
-pin: true
+
 ---
 
 Unfortunately, this topic was easy for me to solve in a uniquely personal way, and He already gave me the answer on day 2 when He came to save me back in late August last year.

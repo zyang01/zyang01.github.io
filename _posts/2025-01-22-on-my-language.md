@@ -2,7 +2,7 @@
 title: On My Language
 date: 2025-01-22 09:03:00 +0000
 tags: [christbro,bible,salvation,psychology,horror,evil]     # TAG names should always be lowercase
-pin: true
+
 ---
 
 In the first 27 years of my life, I barely murmured any of the strong language I used in my [recent 246 posts](../../timeline){:target="_blank"} in front of anyone who knew me personally. Despite the [countless suggestions](../on-appearances/){:target="_blank"} from people I respect to tone down the language, I decided to keep the good, the bad, and the ugly due to the fakeness I discovered in this 122-day journey of faith.

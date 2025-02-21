@@ -2,7 +2,7 @@
 title: On My Community 🌈
 date: 2025-01-03 17:11:50 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
-pin: true
+
 ---
 
 If you got here discreetly via a new project I started recently, then I have a couple of messages for you from my Boss and me personally.

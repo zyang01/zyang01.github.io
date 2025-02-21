@@ -2,7 +2,7 @@
 layout: post
 title: On Blasphemy
 date: 2025-02-17 15:48 +0000
-pin: true
+
 ---
 
 If you are a member of the scribes and Pharisees, please first consider if you have taken the name of the LORD your God in vain yourself before accusing me of doing so after reading my often strong-worded writings especially when condemning evils committed by people I once loved and would like to believe I still love. Even though English is my second language and I also speak Cantonese, Mandarin and a Chinese dialect as well as a tiny bit of German learned when I was partying in Berlin like there was no tomorrow, I stand by my choice of wording in expressing the accuracy of the sentiment and severity of the situation.

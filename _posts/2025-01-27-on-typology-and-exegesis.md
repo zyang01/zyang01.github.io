@@ -2,7 +2,7 @@
 layout: post
 title: On Typology and Exegesis
 date: 2025-01-27 19:56 +0000
-pin: true
+
 ---
 
 As mentioned in my recent posts, I accidentally [stumbled across the Book of Isaiah](../on-holiday/){:target="_blank"} in the Old Testament three weeks ago. For about a week, I believed [I might be the suffering servant](../on-suffering-servant/){:target="_blank"} since Isaiah 52:13 through Isaiah 53:12 more accurately describes me personally than our Lord and Saviour, Jesus Christ, when He showed up 2,000 years ago. I [ended up in Israel the week later](../on-judgement-day/){:target="_blank"} and mistakenly thought [I was going home](../on-going-home/){:target="_blank"}, but I [got scammed in Jerusalem](../on-2012/){:target="_blank"} on the first day for 300 shekels and could not check into the hotel I booked since [I ran out of money](../on-my-situation/){:target="_blank"}, yet again.

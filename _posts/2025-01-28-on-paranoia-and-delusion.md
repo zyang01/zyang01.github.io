@@ -2,7 +2,7 @@
 layout: post
 title: On Paranoia and Delusion
 date: 2025-01-28 04:17 +0000
-pin: true
+
 ---
 
 If you are a faithless unbeliever, you might think, OMG, this guy must be a paranoid and delusional nutjob after gracefully reading through [my 250+ posts](../../timeline){:target="_blank"} written since the end of October last year. I want to express my wholehearted gratitude to you for taking the precious time from [your busy schedule of drug taking](../on-drug-money-addiction/){:target="_blank"}. I appreciate that modern life is hard, and I went through [some stuff](../on-my-salvation/){:target="_blank"} in the last 15 months. Still, there is light at the end of the tunnel, and I hope the good news I'm bringing you can take away the [burden of this age](../on-my-sanity/){:target="_blank"} and break the [yoke on your neck](../on-brainwashing/){:target="_blank"}. You might be able to tell the prince of the power of the air to [fuck off](../on-my-language/){:target="_blank"} as well when the time is right.
@@ -86,6 +86,10 @@ If you could not find the time from [drug taking](../on-drug-money-addiction/){:
 If you are a faithless motherfucker and would like to know how fucked you will be, here are the links to my masterpiece on [P\*\*\*hub](https://www.pornhub.com/view_video.php?viewkey=677a682e8b609){:target="_blank"} and [xH\*\*\*ter](https://xhamster.com/videos/hi-jonah-dot-com-xhrGIjE){:target="_blank"} (**Extremely NSFW**). I have a feeling you will be a lot more fucked than that. Enjoy.
 
 The living God is righteous. Halle-fucking-lujah.
+
+csmtupload@hmpo.gov.uk
+
+PEX surname and docs to be returned
 
 ---
 

@@ -2,7 +2,7 @@
 layout: post
 title: On Sheep and Goats
 date: 2025-02-01 21:06 +0000
-pin: true
+
 ---
 
 In the last six months, most of my friends have removed their sheep costumes and shown themselves as goats. I realised I was a lot more naive and childish than I had thought and cried my eyes out every other day these months. I came across [Matthew 25:31-46](https://www.esv.org/Matthew+25:31%E2%80%9346/){:target="_blank"} the other day and wondered whether there is a way for us to recognise the sheep and the goats in our lives. Boss Man looks at the heart, and it will be easy-peasy for Him on that day.

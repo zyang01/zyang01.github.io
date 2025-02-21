@@ -2,7 +2,7 @@
 layout: post
 title: On Background Music
 date: 2025-02-15 12:26 +0000
-pin: true
+
 ---
 
 Last Saturday, I managed to dispose of a piece of tech to a fellow software engineer who could make better use of it than me. I was feeling pretty well going into the week until I cried because I realised it was the first time in the last 6+ months that I did not have to worry about how I was going to afford the next meal and have to go through the anxiety of which friend who still replies to my messages should I attempt to ask for help again.

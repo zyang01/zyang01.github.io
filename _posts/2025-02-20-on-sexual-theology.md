@@ -2,7 +2,7 @@
 layout: post
 title: On Sexual Theology
 date: 2025-02-20 23:32 +0000
-pin: true
+
 ---
 
 Originally, I wrote another long-winded draft on seggs referencing all sorts of relevant passages I found using AI. As a massive lazy ass like Jonah, I didn't even get through half of the passages returned by OpenAI before deciding not to bother. If you **DID NOT FAIL** logical reasoning **AND** reading comprehension in school, then you could cheat with AI like using [this tool](https://biblesays.love/){:target="_blank"} that I built using ChatGPT or train a LLM if you are a nerd like me, and then carefully reason about whether the Lord would be okay for you to try the creative activity you have in mind that might involve your and hopefully your partner's no-go areas. I devised two lazy rules to clock out early from Boss Man. Dude's been nagging me since Hong Kong back in October, but to be fair I would probably continue sitting on my [get-out-of-jail-free card](../on-background-music/){:target="_blank"} for a couple of months if He didn't start nagging me since then.

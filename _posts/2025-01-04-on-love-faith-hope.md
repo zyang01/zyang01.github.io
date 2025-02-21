@@ -2,7 +2,7 @@
 title: On Love, Faith and Hope
 date: 2025-01-04 17:25:12 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
-pin: true
+
 ---
 
 If I were to summarise the biggest lesson I learned last year, then that would be the relationship between love, faith and hope.

@@ -2,7 +2,7 @@
 title: On Misrepresenting the Lord
 date: 2024-12-01 08:31:11 +0000
 tags: [christbro,bible,salvation]     # TAG names should always be lowercase
-pin: true
+
 ---
 
 Not sure if anyone’s noticed, but I have only ever described my relationship with my Heavenly Father and our conversations. I believe everyone’s relationship with Him is deeply personal.

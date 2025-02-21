@@ -2,7 +2,7 @@
 layout: post
 title: On Positive-Only HMI
 date: 2025-02-20 09:03 +0000
-pin: true
+
 ---
 
 This is a simple introduction to the [Holy Spirit](../on-holy-spirit-miracles/){:target="_blank"} Positive-Only Human-Machine Interface (HSPOHMI). If our Heavenly Father has not bestowed Him on you yet, ask Him for the Holy Spirit. You might have some soul-searching to do. I [asked Him once](../on-anger-faith/){:target="_blank"} last July and He came five weeks later. I was technically being philosophically dramatic.

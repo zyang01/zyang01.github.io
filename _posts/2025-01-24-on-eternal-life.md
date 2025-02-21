@@ -2,7 +2,7 @@
 layout: post
 title: On Eternal Life
 date: 2025-01-24 01:05 +0000
-pin: true
+
 ---
 
 If you think the motive behind my faith is [eternal life](../on-afterlife/){:target="_blank"}, all I can say is that I wanted to nap for eternity every other day throughout this journey [because of people](../on-love-faith-hope/){:target="_blank"}. I tried to take my first proper holiday in April last year, and [some motherfuckers](../on-my-language/){:target="_blank"} decided to [fuck it up for me](../on-love-death/){:target="_blank"}. The only thing that kept me going and raised my spirit every time was His love.
