@@ -9,7 +9,7 @@ pin: true
 
 Edit: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
-See ya on judgement day. Might be a good idea to get Amazon Prime. 🙏😅😂
+See ya on judgement day. Might be a good idea to get [Amazon Prime](https://www.gotquestions.org/famine-hearing-words-Lord.html){:target="_blank"}. 🙏😅😂
 
 Just a quick reminder in case some stupid cunts want to try some idiotic shit. Ask yourselves if you know how to spell Boss Man's name first. I would advise you to save it, but sometimes you simply cannot stop stupid fucking cunts. [Kill shot only](../on-overemployment){:target="_blank"} otherwise I personally guarantee you will be more thoroughly fucked than [this](../on-sexual-theology/){:target="_blank"}.
 
