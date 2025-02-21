@@ -16,20 +16,26 @@ Ask your church pastor about the Holy Spirit and cross-check **everything they t
 You: Hello Holy Spirit, do you confess Jesus Christ has come in the flesh?<br>
 HS: Yes. (Disconnect and consult a true teacher immediately if the answer is no or no response)<br>
 You: Thank you, Holy Spirit. <u>____________positive-only_question____________</u><br>
-HS: Yes / Non-negative (Doesn't mean the answer is No, see example below)<br>
+HS: Yes / No-response (Doesn't mean the answer is No, see example below)<br>
 You: Thank you, Holy Spirit. Love you and signing off.<br>
 
 ### Example:
 
 You: Should I take a shower?<br>
-HS: Non-negative.<br>
+HS: No response.<br>
 You: Should I not take a shower?<br>
-HS: Non-negative.<br>
+HS: No response.<br>
 Result: exercise your free will and discretion.<br>
 
 You: Should I take a shower?<br>
 HS: Yes.<br>
 Result: you dirty bastard fucked up.<br>
+
+### A Bad Example:
+
+Below was the first real-world application of the HMI when I was emailing stakeholders earlier this week, including some false teachers and [cunts](../on-background-music/){:target="_blank"} I would like to believe I still love. I realised shortly after that no response is not the same as a negative response and the HMI is positive-only rather than binary. Need to brush up on my elementary logic 101. It's been a while.
+
+<embed src="https://dl.hesaid.love/binary_hmi_bad_example.pdf" type="application/pdf" width="100%" height="600px" />
 
 ### Don't be this guy:
 
