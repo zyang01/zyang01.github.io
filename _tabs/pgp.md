@@ -1,7 +1,7 @@
 ---
 title: PGP Public Key
 icon: fas fa-key
-order: 5
+order: 6
 ---
 
 Hi,
