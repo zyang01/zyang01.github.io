@@ -5,6 +5,8 @@ date: 2025-02-20 21:02 +0000
 pin: true
 ---
 
+**Edit: I realised my language doesn't necessarily encourage people to keep on reading, but I said truth over appearances at the beginning since the world has gotten way too fake. So I'm just going to sincerely apologise here once again after the hundreds of apologies I have already made. I genuinely believe you will understand my use of language if you finish reading. Thanks.**
+
 Edit: in case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
 See ya on judgement day. Might be a good idea to get Amazon Prime. 🙏😅😂
