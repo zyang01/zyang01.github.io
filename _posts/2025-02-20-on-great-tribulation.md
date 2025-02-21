@@ -9,7 +9,9 @@ pin: true
 
 Edit 3: I just realised something quite unfortunate that I never understood before in The Final Judgement. I had always wondered why repeated the same pattern in Matthew 25:44 given the same was said in more detail through Matthew 25:37-39, and **why would they not recognise the Lord when they believed they knew the Lord**. I think they are there through cumbersome elaborateness to make me realise the scribes and Pharisees who did not bother to look into the evidence before referring me to mental health services are exactly the ones who won't recognise the Lord. **I'm not saying I'm the Lord, I'm saying they never knew the Lord in the first place and if they would not allow someone like me to even present the evidence that I have encountered the Lord, how could they possibly recognise the Lord when He comes back?**
 
-**This is first-degree self-deception caught in the act, unfortunately. Karma is a bitch, but I sincerely hope I'm not the fucking messiah for their sake and there is still time for them to repent.**
+**This is first-degree self-deception caught in the act, unfortunately. Karma is a bitch, but I sincerely hope I'm not the fucking messiah for their fucking sake and there is still time for them to repent.**
+
+**Will you believe me when I say I never wanted to be the fucking messiah now?**
 
 ---
 
