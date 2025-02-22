@@ -32,18 +32,18 @@ Judging Others
 
 ---
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+![](/xpnDGthytwZv6bCSyg.jpg)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 Jesus Christ is my Lord and Saviour.
