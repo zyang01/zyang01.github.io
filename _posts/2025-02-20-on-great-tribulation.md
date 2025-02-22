@@ -3,6 +3,7 @@ layout: post
 title: On Great Tribulation
 date: 2025-02-20 21:02 +0000
 description: Announcing the end of the great tribulation. Proclaiming the Day of the Lord and the year of the Lord’s favour as described in humanity’s bestseller the Holy Bible.
+image: /6e760355a4f2267fc6c3900624861241.jpeg
 pin: true
 ---
 
