@@ -1,20 +1,53 @@
 #!/bin/sh
 
+COMMIT_MSG="Build $(date '+%Y-%m-%d %H:%M:%S %:z')"
+
 echo "Running Jekyll build and HTMLProofer check..."
 
 # Step 1: Build the Jekyll site
 JEKYLL_ENV=production bundle exec jekyll build
 if [ $? -ne 0 ]; then
-  echo "Jekyll build failed. Commit aborted."
+  echo "❌❌❌ Jekyll build failed. Commit aborted."
   exit 1
 fi
 
 # Step 2: Run HTMLProofer on the _site folder
 bundle exec htmlproofer _site --disable-external
 if [ $? -ne 0 ]; then
-  echo "HTMLProofer check failed. Commit aborted."
+  echo "❌❌❌ HTMLProofer check failed. Commit aborted."
   exit 1
 fi
 
-echo "All checks passed. Proceeding with commit."
+# Step 3: rsync _site and build repo
+rsync -av --delete --exclude '.git' ./_site/ ./HeSaid.Love/
+if [ $? -ne 0 ]; then
+  echo "❌❌❌ rsync failed. Commit aborted."
+  exit 1
+fi
+
+# Step 4: Commit changes to build repo
+echo "🚨🚨🚨 Build repo updated. Committing changes. Signing commit..."
+git submodule foreach "git commit -am '$COMMIT_MSG' --no-verify"
+if [ $? -ne 0 ]; then
+  echo "❌❌❌ Committing build repo failed."
+  exit 1
+fi
+
+# Step 5: Push changes to build repo
+echo "🚨🚨🚨 Build committed. Pushing commit..."
+git submodule foreach "git push --no-verify"
+if [ $? -ne 0 ]; then
+  echo "❌❌❌ Pushing build repo failed."
+  exit 1
+fi
+
+# Step 6: Add changes to main repo
+echo "🚨🚨🚨 Build repo pushed. Adding changes to main repo..."
+git add HeSaid.Love
+if [ $? -ne 0 ]; then
+  echo "❌❌❌ Staging build repo changes failed."
+  exit 1
+fi
+
+echo "✅✅✅ All checks passed. Proceeding with commit."
 exit 0

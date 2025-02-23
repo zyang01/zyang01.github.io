@@ -1,3 +1,6 @@
 [submodule "assets/lib"]
 	path = assets/lib
 	url = https://github.com/cotes2020/chirpy-static-assets.git
+[submodule "HeSaid.Love"]
+	path = HeSaid.Love
+	url = git@github.com:zyang01/HeSaid.Love.git
