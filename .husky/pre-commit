@@ -1,5 +1,7 @@
 #!/bin/sh
 
+rm -rf _site
+
 COMMIT_MSG="Build $(date '+%Y-%m-%d %H:%M:%S %:z')"
 
 echo "Running Jekyll build and HTMLProofer check..."
@@ -48,6 +50,17 @@ if [ $? -ne 0 ]; then
   echo "❌❌❌ Staging build repo changes failed."
   exit 1
 fi
+
+# Step 7: Use OpenTimestamps to timestamp the build commit
+echo "🚨🚨🚨 Changes staged. Timestamping submodules..."
+git submodule status > submodules.txt
+rm -f submodules.txt.ots
+ots stamp submodules.txt
+if [ $? -ne 0 ]; then
+  echo "❌❌❌ Timestamping submodules.txt failed."
+  exit 1
+fi
+git add submodules.txt submodules.txt.ots
 
 echo "✅✅✅ All checks passed. Proceeding with commit."
 exit 0
