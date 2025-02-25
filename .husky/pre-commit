@@ -29,7 +29,7 @@ fi
 
 # Step 4: Commit changes to build repo
 echo "🚨🚨🚨 Build repo updated. Committing changes. Signing commit..."
-git submodule foreach "git commit -am '$COMMIT_MSG' --no-verify"
+git submodule foreach "git add -v . && git commit -m '$COMMIT_MSG' --no-verify"
 if [ $? -ne 0 ]; then
   echo "❌❌❌ Committing build repo failed."
   exit 1
