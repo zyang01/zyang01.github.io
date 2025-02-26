@@ -104,4 +104,78 @@ Israel and Judah Are Unrepentant
 
 ---
 
+Genesis 18:22–33
+
+Abraham Intercedes for Sodom
+
+[22] So the men turned from there and went toward Sodom, but Abraham still stood before the LORD. [23] Then Abraham drew near and said, “Will you indeed sweep away the righteous with the wicked? [24] Suppose there are fifty righteous within the city. Will you then sweep away the place and not spare it for the fifty righteous who are in it? [25] Far be it from you to do such a thing, to put the righteous to death with the wicked, so that the righteous fare as the wicked! Far be that from you! Shall not the Judge of all the earth do what is just?” [26] And the LORD said, “If I find at Sodom fifty righteous in the city, I will spare the whole place for their sake.”
+
+[27] Abraham answered and said, “Behold, I have undertaken to speak to the Lord, I who am but dust and ashes. [28] Suppose five of the fifty righteous are lacking. Will you destroy the whole city for lack of five?” And he said, “I will not destroy it if I find forty-five there.” [29] Again he spoke to him and said, “Suppose forty are found there.” He answered, “For the sake of forty I will not do it.” [30] Then he said, “Oh let not the Lord be angry, and I will speak. Suppose thirty are found there.” He answered, “I will not do it, if I find thirty there.” [31] He said, “Behold, I have undertaken to speak to the Lord. Suppose twenty are found there.” He answered, “For the sake of twenty I will not destroy it.” [32] Then he said, “Oh let not the Lord be angry, and I will speak again but this once. Suppose ten are found there.” He answered, “For the sake of ten I will not destroy it.” [33] And the LORD went his way, when he had finished speaking to Abraham, and Abraham returned to his place. (ESV)
+
+---
+
+Ezekiel 22:29–31
+
+[29] The people of the land have practiced extortion and committed robbery. They have oppressed the poor and needy, and have extorted from the sojourner without justice. [30] And I sought for a man among them who should build up the wall and stand in the breach before me for the land, that I should not destroy it, but I found none. [31] Therefore I have poured out my indignation upon them. I have consumed them with the fire of my wrath. I have returned their way upon their heads, declares the Lord GOD.” (ESV)
+
+---
+
+Jeremiah 5:1–5
+
+Jerusalem Refused to Repent
+
+ [1] Run to and fro through the streets of Jerusalem,<br>
+  look and take note!<br>
+ Search her squares to see<br>
+  if you can find a man,<br>
+ one who does justice<br>
+  and seeks truth,<br>
+ that I may pardon her.<br>
+ [2] Though they say, “As the LORD lives,”<br>
+  yet they swear falsely.<br>
+ [3] O LORD, do not your eyes look for truth?<br>
+ You have struck them down,<br>
+  but they felt no anguish;<br>
+ you have consumed them,<br>
+  but they refused to take correction.<br>
+ They have made their faces harder than rock;<br>
+  they have refused to repent.<br>
+
+ [4] Then I said, “These are only the poor;<br>
+  they have no sense;<br>
+ for they do not know the way of the LORD,<br>
+  the justice of their God.<br>
+ [5] I will go to the great<br>
+  and will speak to them,<br>
+ for they know the way of the LORD,<br>
+  the justice of their God.”<br>
+ But they all alike had broken the yoke;<br>
+  they had burst the bonds. (ESV)<br>
+
+---
+
+Isaiah 59:14–17
+
+Judgment and Redemption
+
+ [14] Justice is turned back,<br>
+  and righteousness stands far away;<br>
+ for truth has stumbled in the public squares,<br>
+  and uprightness cannot enter.<br>
+ [15] Truth is lacking,<br>
+  and he who departs from evil makes himself a prey.<br>
+
+  The LORD saw it, and it displeased him<br>
+  that there was no justice.<br>
+ [16] He saw that there was no man,<br>
+  and wondered that there was no one to intercede;<br>
+ then his own arm brought him salvation,<br>
+  and his righteousness upheld him.<br>
+ [17] He put on righteousness as a breastplate,<br>
+  and a helmet of salvation on his head;<br>
+ he put on garments of vengeance for clothing,<br>
+  and wrapped himself in zeal as a cloak. (ESV)<br>
+
+---
+
 ![Father forgive them, for I literally can't even](/rC2HGNNWR3JzrY4ngY.jpg)
