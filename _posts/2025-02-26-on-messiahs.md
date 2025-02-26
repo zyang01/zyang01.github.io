@@ -12,17 +12,17 @@ It's been 157 days since I believed, and throughout this journey, I realised the
 
 I kinda asked Him for some stupid stuff when I first learned how to pray including but not limited to letting me suffer and save some random people including but not limited to rampant homosexuals. Whether or not He will allow me to, I don't know. I trust Him and I did not trust myself even once in my entire life. He does tell me to stop working and go chill the fuck out somewhat regularly. The health insurance is pretty good with this Boss, and I heard a Colleague got injured three years into the job and Dude is still chilling on paid leave after 2,000 years. My former life ambition was to build an interesting tech startup and ideally work up to a net worth of 10-50 mil so that I could study and explore any extremely random interest that I somehow magically come up with every 3 to 6 months, and could still be in t-shirt and jeans without anyone bothering me. I was definitely on track with that with a mid-six-figure income at 27, then I tried to take my first holiday and you are reading about the ongoing nuclear fallout. I'm gonna work my ass off, both literally and figuratively, and see if I can also go on a sabbatical for something like forever and ever.
 
-Feel free to get in touch after you find out about the m-word thing. To be honest, given how successfully we managed to fuck this up, I think the singular m-word might not be enough, and we might be able to unfuck this quicker if we start using the plural form. But it took decades for my community, some of whom are rampant homosexuals like me who enjoy getting fucked in the ass by talented Germans in FickstutenMarkt for 4hrs+ non-stop whilst listening to sick Berlin techno, to fight for our rights to be equal citizens of society, and we still face discrimination today. Statistically speaking, I think the m-word community will have a significantly harder time, but speaking from first-hand personal experience, statistics is a synonym for null in their dictionary.
+Feel free to get in touch after you find out about the m-word thing. To be honest, given how successfully we managed to fuck this up, I think the singular m-word might not be enough, and we might be able to unfuck this quicker if we start using the plural form. But it took decades for my community, some of whom are rampant homosexuals like me who enjoy getting fucked in the ass by talented Germans in FickstutenMarkt for 4hrs+ non-stop whilst listening to sick Berlin techno, to fight for our rights to be equal citizens of society, and we still face discrimination today. Statistically speaking, I think the m-word community will have a significantly harder time, but speaking from first-hand personal experience, statistics is a synonym for null in their dictionary. Big Man does not play dice with His creation.
 
 ---
 
-Matthew 24:22
+## Matthew 24:22
 
 [22] And if those days had not been cut short, no human being would be saved. But for the sake of the elect those days will be cut short. (ESV)
 
 ---
 
-Matthew 24:15–22
+## Matthew 24:15–22
 
 The Abomination of Desolation
 
@@ -30,13 +30,13 @@ The Abomination of Desolation
 
 ---
 
-Matthew 12:7
+## Matthew 12:7
 
 [7] And if you had known what this means, ‘I desire mercy, and not sacrifice,’ you would not have condemned the guiltless. (ESV)
 
 ---
 
-Matthew 9:9–13
+## Matthew 9:9–13
 
 Jesus Calls Matthew
 
@@ -46,7 +46,7 @@ Jesus Calls Matthew
 
 ---
 
-Matthew 7:1–5
+## Matthew 7:1–5
 
 Judging Others
 
@@ -54,7 +54,7 @@ Judging Others
 
 ---
 
-Luke 12:13–14
+## Luke 12:13–14
 
 The Parable of the Rich Fool
 
@@ -62,7 +62,7 @@ The Parable of the Rich Fool
 
 ---
 
-Hosea 6
+## Hosea 6
 
 Israel and Judah Are Unrepentant
 
@@ -104,7 +104,7 @@ Israel and Judah Are Unrepentant
 
 ---
 
-Genesis 18:22–33
+## Genesis 18:22–33
 
 Abraham Intercedes for Sodom
 
@@ -114,13 +114,13 @@ Abraham Intercedes for Sodom
 
 ---
 
-Ezekiel 22:29–31
+## Ezekiel 22:29–31
 
 [29] The people of the land have practiced extortion and committed robbery. They have oppressed the poor and needy, and have extorted from the sojourner without justice. [30] And I sought for a man among them who should build up the wall and stand in the breach before me for the land, that I should not destroy it, but I found none. [31] Therefore I have poured out my indignation upon them. I have consumed them with the fire of my wrath. I have returned their way upon their heads, declares the Lord GOD.” (ESV)
 
 ---
 
-Jeremiah 5:1–5
+## Jeremiah 5:1–5
 
 Jerusalem Refused to Repent
 
@@ -154,7 +154,7 @@ Jerusalem Refused to Repent
 
 ---
 
-Isaiah 59:14–17
+## Isaiah 59:14–17
 
 Judgment and Redemption
 
