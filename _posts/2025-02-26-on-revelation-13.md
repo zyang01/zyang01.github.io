@@ -47,6 +47,10 @@ Hence, 666 could be the number of humanity, the unholy, unholy, unholy imperfect
 
 I caught some false teachers smuggling stinky [humanism](https://en.wikipedia.org/wiki/Humanism){:target="_blank"} by only focusing on the soft stuff in the New Testament, which breaks the third commandment and blasphemies against God.
 
+> Starting in the 20th century, some humanist movements are non-religious and aligned with secularism. Most frequently in contemporary usage, humanism refers to a non-theistic view centered on human agency, and a reliance only on science and reason rather than revelation from a divine source to understand the world. A non-theistic humanist worldview asserts that religion is not a precondition of morality, and objects to excessive religious entanglement with education and the state.
+>
+> Humanism - Wikipedia
+
 I discussed in [a previous post](../on-genesis-3-fall-man/){:target="_blank"} something the crafty serpent gave the woman that she did not have before, which led to the fall of man in Genesis 3. That thing was **doubt** and I read Revelation 13 again substituting the dragon with **doubt**.
 
 ---
@@ -68,7 +72,7 @@ The First Beast
 
 ---
 
-I'm way too lazy to work out everything myself and my to-do list is barely going down at the moment. Feel free to have a go at it yourself, but here is where the 27 years of my previous life come in. The [ethical thought experiment](../on-sheep-and-goats/){:target="_blank"} I designed during COVID-19 came true last year, which involved an Austrian artist, a time machine, nuclear weapons, humanity and divine intervention. I asked ChatGPT about the symbolism of the sea in the Holy Bible, and put down humanity and/or reason for the first beast. The mortal wound was World War II and/or science/physics.
+I'm way too lazy to work out everything myself and my to-do list is barely going down at the moment. Feel free to have a go at it yourself, but here is where the 27 years of my previous life come in. The [ethical thought experiment](../on-sheep-and-goats/){:target="_blank"} I designed during COVID-19 came true last year, which involved an Austrian artist, a time machine, nuclear weapons, humanity and divine intervention. I asked ChatGPT about the symbolism of the sea in the Holy Bible, and put down humanity and/or reason/science for the first beast. The mortal wound was World War II and/or physics.
 
 <embed src="https://dl.hesaid.love/symbolism_of_the_sea.pdf" type="application/pdf" width="100%" height="600px" />
 
@@ -115,9 +119,9 @@ The Second Beast
 
 ---
 
-I put down technology as the second beast. The beast spoke like a dragon indeed. I was [informed by an Israeli border officer last month](../on-going-home/){:target="_blank"} that the second beast performed great signs just the night before and made fire come down from heaven to earth in front of people. I was quite willing to walk into a special delivery from the second beast during my trip due to how faithful my "friends" had been.
+I put down technology/internet as the second beast. The beast spoke like a dragon (doubt) indeed. I was [informed by an Israeli border officer last month](../on-going-home/){:target="_blank"} that the second beast performed great signs just the night before and made fire come down from heaven to earth in front of people. I was quite willing to walk into a special delivery from the second beast during my trip due to how faithful my "friends" had been.
 
-I put down humanity/self and/or [drugs (money)](../on-drug-money-addiction/){:target="_blank"} for the image of the beast. People kept telling me to think about myself first during my recent rollercoaster ride of six months, and less than a dozen people bought me coffee. It seems like most only think about me, myself and I all day and are extremely occupied with taking and posting selfies on Instagram or whatever trendy Web3 social media bullshit the crypto/tech bros are up to nowadays. I also learned that I'm one of those extremely rare idiots who do not worship themselves, consider themselves to be of the utmost importance in the head, nor consider themselves righteous all the time. No wonder I'm bankrupt and rent is 4.5 months overdue right now despite making mid-six-figures less than a year ago. I certainly cannot buy or sell right now. I have started my adult live-stream webcam career for a couple of weeks now. I'm still below the withdrawal minimum on Chaturbate and Stripchat due to my unwillingness to do private shows and my insistence on goodwill-only income, despite literally working my ass off and giving my best every single stream. It's honestly extremely difficult to earn an honest living nowadays, probably not a path you want to go down if you consider yourself "wise".
+I put down humanity/humanism/self and/or [drugs (money)](../on-drug-money-addiction/){:target="_blank"} for the image of the beast. People kept telling me to think about myself first during my recent rollercoaster ride of six months, and less than a dozen people bought me coffee. It seems like most only think about me, myself and I all day and are extremely occupied with taking and posting selfies on Instagram or whatever trendy Web3 social media bullshit the crypto/tech bros are up to nowadays. I also learned that I'm one of those extremely rare idiots who do not worship themselves, consider themselves to be of the utmost importance in the head, nor consider themselves righteous all the time. No wonder I'm bankrupt and rent is 4.5 months overdue right now despite making mid-six-figures less than a year ago. I certainly cannot buy or sell right now. I have started my adult live-stream webcam career for a couple of weeks now. I'm still below the withdrawal minimum on Chaturbate and Stripchat due to my unwillingness to do private shows and my insistence on goodwill-only income, despite literally working my ass off and giving my best every single stream. It's honestly extremely difficult to earn an honest living nowadays, probably not a path you want to go down if you consider yourself "wise".
 
 ---
 
@@ -186,7 +190,7 @@ The descendants of Adonikam are 667 as counted in Nehemiah 7:18 instead of 666 i
 
 Given we are in an intellectual, spiritual, moral and ethical decay where a Christian informed me yesterday that trying to save other people is a sign of pride, I have decided to follow Boss Man regardless of what the antichrists pretending to be Christians say. Although, I kinda realised I had been following Him all my life even in the 27 years of my previous life. The only thing is I did not know His name, but I did know His other glorious name - Truth. I learned 157 days ago that His name is Jesus Christ, my Lord and Saviour.
 
-Boss Man gave me a list containing 113,119 Assyrian camps yesterday. I have got some nations to sprinkle and [startle](https://dl.hesaid.love/love_not_lust.mp4){:target="_blank"}, as well as proclaiming the gospel of the kingdom throughout the whole world as a testimony to all nations.
+Boss Man gave me a list containing 113,119 Assyrian camps yesterday. I have got some nations to sprinkle and startle, as well as proclaiming the gospel of the kingdom throughout the whole world as a testimony to all nations.
 
 I have been telling the devil and Satan to piss off and leave me alone in the name of my Lord and Saviour Jesus Christ since my welcoming party taught me at the beginning of this journey less than 6 months ago. I think he might have finally fucked off now. 🤞
 
