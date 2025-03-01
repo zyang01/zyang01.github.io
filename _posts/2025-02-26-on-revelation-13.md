@@ -171,28 +171,7 @@ The Golden Rule
 
 [12] “So whatever you wish that others would do to you, do also to them, for this is the Law and the Prophets.
 
-<p>
-    [13] “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. [14] For the gate is narrow and the way is hard that leads to life, and those who find it are few.
-    <span class="expandable">
-        <span class="expand-btn" onclick="toggleContent()">[ClickMe]</span>
-        <span id="extra-content" style="display: none;">
-            ><br><br>To prevent abuse, a donation of one cup of coffee in London (£5) is required to <a href="https://donate.stripe.com/14kdQR7DE24CaeQeUU" target="_blank">cast your vote</a>. Your donation <strong>will not be appreciated</strong> and you can go fuck yourself immediately after the payment goes through.<br><br>It is entirely voluntary whether you want to be a member of the elect. I don't know if the registration deadline has passed or not for the Main Event. This is just an <strong>unofficial</strong> self-organised pre-drink.<br><br>Your reading speed will be crucial and you better not fucked up your logical reasoning and reading comprehension in school or broke the third commandment as a false teacher.<br><br>I heard that if you are a rampant homosexual who was willing to sacrifice your entire world just to be true to who you are and your conscience, then I believe you might be eligible for fast track.<br><br>Fuck you, bad luck and enjoy. 🖕 <br><br>
-        </span>
-    </span>(ESV)
-</p>
-
-<script>
-  function toggleContent() {
-    var content = document.getElementById("extra-content");
-    content.style.display = content.style.display === "none" ? "inline" : "none";
-  }
-</script>
-
-<style>
-  .expand-btn {
-    cursor: pointer;
-  }
-</style>
+[13] “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. [14] For the gate is narrow and the way is hard that leads to life, and those who find it are few. (ESV)
 
 ---
 
