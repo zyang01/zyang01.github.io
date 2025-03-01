@@ -49,34 +49,34 @@ Edit: I kinda just realised I was being a hypocrite and didn't take the log out 
 
 How Shall We Sing the LORD’s Song?
 
- [1] By the waters of Babylon,
-  there we sat down and wept,
-  when we remembered Zion.
- [2] On the willows there
-  we hung up our lyres.
- [3] For there our captors
-  required of us songs,
- and our tormentors, mirth, saying,
-  “Sing us one of the songs of Zion!”
+ [1] By the waters of Babylon,<br>
+  there we sat down and wept,<br>
+  when we remembered Zion.<br>
+ [2] On the willows there<br>
+  we hung up our lyres.<br>
+ [3] For there our captors<br>
+  required of us songs,<br>
+ and our tormentors, mirth, saying,<br>
+  “Sing us one of the songs of Zion!”<br>
 
- [4] How shall we sing the LORD’s song
-  in a foreign land?
- [5] If I forget you, O Jerusalem,
-  let my right hand forget its skill!
- [6] Let my tongue stick to the roof of my mouth,
-  if I do not remember you,
- if I do not set Jerusalem
-  above my highest joy!
+ [4] How shall we sing the LORD’s song<br>
+  in a foreign land?<br>
+ [5] If I forget you, O Jerusalem,<br>
+  let my right hand forget its skill!<br>
+ [6] Let my tongue stick to the roof of my mouth,<br>
+  if I do not remember you,<br>
+ if I do not set Jerusalem<br>
+  above my highest joy!<br>
 
- [7] Remember, O LORD, against the Edomites
-  the day of Jerusalem,
- how they said, “Lay it bare, lay it bare,
-  down to its foundations!”
- [8] O daughter of Babylon, doomed to be destroyed,
-  blessed shall he be who repays you
-  with what you have done to us!
- [9] Blessed shall he be who takes your little ones
-  and dashes them against the rock! (ESV)
+ [7] Remember, O LORD, against the Edomites<br>
+  the day of Jerusalem,<br>
+ how they said, “Lay it bare, lay it bare,<br>
+  down to its foundations!”<br>
+ [8] O daughter of Babylon, doomed to be destroyed,<br>
+  blessed shall he be who repays you<br>
+  with what you have done to us!<br>
+ [9] Blessed shall he be who takes your little ones<br>
+  and dashes them against the rock! (ESV)<br>
 
 ---
 
