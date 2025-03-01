@@ -82,11 +82,23 @@ I'm way too lazy to work out everything myself and my to-do list is barely going
 
 [Seven liberal arts](https://en.wikipedia.org/wiki/Liberal_arts_education){:target="_blank"} and [ten mathematical and natural sciences](https://en.wikipedia.org/wiki/Liberal_arts_education#Modern_usage){:target="_blank"}, legacy of [classical antiquity](https://en.wikipedia.org/wiki/Classical_antiquity){:target="_blank"}.
 
+> The seven subjects in the ancient and medieval meaning came to be divided into the trivium of rhetoric, grammar, and logic, and the quadrivium of astronomy, arithmetic, geometry, and music.
+>
+> Life science (biology, neuroscience)<br>
+> Physical science (physics, astronomy, physical geography, chemistry, earth science)<br>
+> Formal science (logic, mathematics, statistics)<br>
+>
+> Liberal arts education - Wikipedia
+
+### Second half of the tribulation - Setting up the abomination of desolation
+
 [Science for the twenty-first century: a new commitment](https://unesdoc.unesco.org/ark:/48223/pf0000122938){:target="_blank"}
 📥 [Download (Backup)](https://dl.hesaid.love/122938engo.pdf){:target="_blank"}
 
 [World Declaration on Higher Education for the Twenty-first Century: Vision and Action and Framework for Priority Action for Change and Development in Higher Education, adopted by the World Conference on Higher Education: Higher Education in the Twenty-first Century, Vision and Action, 9 October 1998](https://unesdoc.unesco.org/ark:/48223/pf0000141952){:target="_blank"}
 📥 [Download (Backup)](https://dl.hesaid.love/141952eng.pdf){:target="_blank"}
+
+### First half of the tribulation (maybe)
 
 [New International Economic Order (NIEO)](https://en.wikipedia.org/wiki/New_International_Economic_Order){:target="_blank"}
 
