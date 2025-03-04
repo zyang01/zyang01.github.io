@@ -86,13 +86,13 @@ Jesus Rejected at Nazareth
 
 [16] And he came to Nazareth, where he had been brought up. And as was his custom, he went to the synagogue on the Sabbath day, and he stood up to read. [17] And the scroll of the prophet Isaiah was given to him. He unrolled the scroll and found the place where it was written,
 
- [18] “The Spirit of the Lord is upon me,
-  because he has anointed me
-  to proclaim good news to the poor.
- He has sent me to proclaim liberty to the captives
-  and recovering of sight to the blind,
-  to set at liberty those who are oppressed,
- [19] to proclaim the year of the Lord’s favor.”
+ [18] “The Spirit of the Lord is upon me,<br>
+  because he has anointed me<br>
+  to proclaim good news to the poor.<br>
+ He has sent me to proclaim liberty to the captives<br>
+  and recovering of sight to the blind,<br>
+  to set at liberty those who are oppressed,<br>
+ [19] to proclaim the year of the Lord’s favor.”<br>
 
  [20] And he rolled up the scroll and gave it back to the attendant and sat down. And the eyes of all in the synagogue were fixed on him. [21] And he began to say to them, “Today this Scripture has been fulfilled in your hearing.” [22] And all spoke well of him and marveled at the gracious words that were coming from his mouth. And they said, “Is not this Joseph’s son?” [23] And he said to them, “Doubtless you will quote to me this proverb, ‘“Physician, heal yourself.” What we have heard you did at Capernaum, do here in your hometown as well.’” [24] And he said, “Truly, I say to you, no prophet is acceptable in his hometown. [25] But in truth, I tell you, there were many widows in Israel in the days of Elijah, when the heavens were shut up three years and six months, and a great famine came over all the land, [26] and Elijah was sent to none of them but only to Zarephath, in the land of Sidon, to a woman who was a widow. [27] And there were many lepers in Israel in the time of the prophet Elisha, and none of them was cleansed, but only Naaman the Syrian.” [28] When they heard these things, all in the synagogue were filled with wrath. [29] And they rose up and drove him out of the town and brought him to the brow of the hill on which their town was built, so that they could throw him down the cliff. [30] But passing through their midst, he went away. (ESV)
 
