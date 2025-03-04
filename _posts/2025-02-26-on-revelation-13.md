@@ -189,4 +189,6 @@ I don't doubt. I believe.
 
 See ya.
 
+<embed src="https://dl.hesaid.love/Man_of_Lawlessness_Bible_Summary.pdf" type="application/pdf" width="100%" height="600px" />
+
 ![Fuck off, Satan](/E5sHTxyHTXDA43nCHZ.gif)
