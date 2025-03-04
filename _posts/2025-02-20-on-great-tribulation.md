@@ -109,6 +109,8 @@ Revelation 17:14
 
 ## Antichrist / Mark of the Beast / 666
 
+**Correction: see [this post](../on-revelation-13/){:target="_blank"} on the man of lawlessness, antichrist and my apology.**
+
 <div style="display: flex; justify-content: space-between;">
   <img src="https://dl.hesaid.love/666/Screenshot_20250220-152638.png" alt="" style="width: 48%;">
   <img src="https://dl.hesaid.love/666/Screenshot_20250220-152529.png" alt="" style="width: 48%;">
