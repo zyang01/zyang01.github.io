@@ -189,6 +189,16 @@ I don't doubt. I believe.
 
 See ya.
 
+Edit: surprise, surprise, totally did not expect the first jobs [AI would take away](https://letter.hesaid.love){:target="_blank"} are pastors and theologians. 😅
+
+---
+
+## Matthew 12:30
+
+[30] Whoever is not with me is against me, and whoever does not gather with me scatters. (ESV)
+
+---
+
 <embed src="https://dl.hesaid.love/Man_of_Lawlessness_Bible_Summary.pdf" type="application/pdf" width="100%" height="600px" />
 
 ![Fuck off, Satan](/E5sHTxyHTXDA43nCHZ.gif)
