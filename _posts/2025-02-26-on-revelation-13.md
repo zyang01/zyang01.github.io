@@ -3,6 +3,7 @@ layout: post
 title: On Revelation 13
 date: 2025-02-26 16:16 +0000
 image: /E5sHTxyHTXDA43nCHZ.gif
+pin: true
 ---
 
 <p style="font-size: 27px;"><b>Firstly, I just want to say what a King of Kings and King of Drama.</b></p>
