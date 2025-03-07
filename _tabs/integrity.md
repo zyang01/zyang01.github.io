@@ -15,29 +15,20 @@ As you can tell, it's not great to have too wild an imagination, and I won't be 
 
 ### IPFS Deployment
 
-A DNSLink gateway is set up on ipfs.hesaid.love using Cloudflare Web3. You can find the CID by looking up the DNS TXT record of _dnslink.ipfs.hesaid.love.
+DNSLink records are set up for hesaid.love and dl.hesaid.love. You can find the CIDs by looking up the DNS TXT records.
 
 ```bash
-$ dig -t txt _dnslink.ipfs.hesaid.love
+ubuntu@ipfs:~$ dig +noall +answer TXT _dnslink.hesaid.love
+_dnslink.hesaid.love. 262 IN TXT "dnslink=/ipns/k51qzi5uqu5di56nvk7d2w3qmubmb3pqon5tsmxywfwt4kxhfdxtncy65w5daf"
 
-; <<>> DiG 9.18.30-0ubuntu0.24.04.2-Ubuntu <<>> -t txt _dnslink.ipfs.hesaid.love
-;; global options: +cmd
-;; Got answer:
-;; ->>HEADER<<- opcode: QUERY, status: NOERROR, id: 13130
-;; flags: qr rd ra; QUERY: 1, ANSWER: 1, AUTHORITY: 0, ADDITIONAL: 1
+ubuntu@ipfs:~$ ipfs name resolve /ipns/hesaid.love
+/ipfs/bafybeiaauoqv37yuguduvo6xuodtnjlephglbiqvos6ouslm7nywe7smby
 
-;; OPT PSEUDOSECTION:
-; EDNS: version: 0, flags:; udp: 65494
-;; QUESTION SECTION:
-;_dnslink.ipfs.hesaid.love. IN TXT
+ubuntu@ipfs:~$ dig +noall +answer TXT _dnslink.dl.hesaid.love
+_dnslink.dl.hesaid.love. 267 IN TXT "dnslink=/ipns/k51qzi5uqu5dki6xp2kc8ah1x8zu1aibeluphf4v9m4gs4lw1mruox2mv79eya"
 
-;; ANSWER SECTION:
-_dnslink.ipfs.hesaid.love. 300 IN TXT "dnslink=/ipfs/bafybeiewyfuixzxjwnvqpj5cbc3a3amz4rzlxu3mk26wrt365hhtdeydci"
-
-;; Query time: 19 msec
-;; SERVER: 127.0.0.53#53(127.0.0.53) (UDP)
-;; WHEN: Tue Feb 25 00:45:34 GMT 2025
-;; MSG SIZE  rcvd: 140
+ubuntu@ipfs:~$ ipfs name resolve /ipns/dl.hesaid.love
+/ipfs/bafybeig4ukhy4m64xta5ib6vmkcfloplnpo7kas34qgtqurq7ni5vhfiom
 ```
 
 ### Incomplete List of In-use Domain Names
