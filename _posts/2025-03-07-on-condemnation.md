@@ -58,6 +58,8 @@ In this faith journey of 23 weeks and 5 days, I learned that if I were to slip a
 
 Such is the state of faith in my generation. I sincerely hope that was merely a stunt.
 
+![My guardian angel when they got assigned to me](/hxusKTbxvC4GjBkbfV.jpg)
+
 ---
 
 ## Hebrews 11
