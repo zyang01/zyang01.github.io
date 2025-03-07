@@ -40,6 +40,12 @@ I asked a friend recently whether they believe I'm willing to lay down my life f
 
 ---
 
+“For those who believe, no proof is necessary. For those who don't believe, no proof is possible.”
+
+― Stuart Chase
+
+---
+
 In this faith journey of 23 weeks and 5 days, I learned that if I were to slip and break my neck in the shower today, there is only one person who would come for me and He is not in my WhatsApp or WeChat contacts. Frankly, I'm not even sure whether cutting my chest open, ripping my heart out, and placing it right in front of my WhatsApp and WeChat contacts would be sufficient to make them believe.
 
 ---
