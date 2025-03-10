@@ -1,25 +1,27 @@
 ---
-title: Cunts Lied
+title: They Lied
 permalink: /cuntslied/
 icon: fas fa-thumbs-down
 order: 2
 ---
 
-This is the landing page for Cunts Lied ([CuntsLied.com](https://cuntslied.com){:target="_blank"}, [CuntsLied.org](https://cuntslied.org){:target="_blank"}, [StraightCuntsLied.com](https://straightcuntslied.com){:target="_blank"}, [StraightCuntsLied.org](https://straightcuntslied.org){:target="_blank"}, [TheyLied.fyi](https://theylied.fyi){:target="_blank"} and [TheyLied.gay](https://theylied.gay){:target="_blank"}), a project to proclaim liberty to the captives, and the opening of the prison to those who are bound.
+Welcome to Straight Cunts Lied ([CuntsLied.com](https://cuntslied.com){:target="_blank"}, [CuntsLied.org](https://cuntslied.org){:target="_blank"}, [StraightCuntsLied.com](https://straightcuntslied.com){:target="_blank"}, [StraightCuntsLied.org](https://straightcuntslied.org){:target="_blank"}, [TheyLied.fyi](https://theylied.fyi){:target="_blank"} and [TheyLied.gay](https://theylied.gay){:target="_blank"}), a project to proclaim liberty to the captives. And the opening of the prison to those who are bound.
 
-Long story short, I believed for the 27 years of my previous life that if God existed, then He would hate a rampant homosexual like me based purely on religious stereotypes. My life hit rock bottom in 2024 and I almost threw myself off the fifth-floor balcony right in front of my younger sister and He came to save me. I bought a humanity's bestseller a month prior, immediately after getting kicked out of the gay/bi-naturist campsite Rosebay in Peterborough, United Kingdom for giving them free full-site Wi-Fi coverage because they were nice to me in the beginning and made me feel like an adopted son while my relationship with my biological family fell apart. I started reading the bestseller after a sequence of incomprehensible events which were described truthfully in my posts. I found out the straight cunts lied and they most likely failed not only maths and sciences but also reading comprehension in school.
+It is also a non-revocable open invitation with an expiry date of the end of time for anyone to slap me with humanity's bestseller, metaphorically first and then literally only if successful metaphorically. The referee, our Lord and Saviour, Jesus Christ, will decide whether a metaphorical attempt is successful. If you have never held a humanity's bestseller before, all you need to know is it will most certainly hurt.
 
-If any esteemed hypocrites tell you God hates you because of who you are or what you did, show them [this post on homosexuality](../posts/on-homosexuality/){:target="_blank"}, [this post on blasphemy](../posts/on-blasphemy/){:target="_blank"}, [this post on lust and guilt](../posts/on-lust-and-guilt/){:target="_blank"}, and inform them politely that they took the Lord's name in vain, and the Lord will not hold them guiltless. Know that you are loved. What the straight cunts do not know is some of us love getting poked in our buttholes, and some love poking buttholes, just as some hypocrites love hiking and some love travelling. We also spend significant effort in aftercare getting to know each other and exploring less abominable shared interests including but not limited to philosophy and theology. The love we have with each other could be out of genuine love and care for each other, rather than lust. That being said, there are also [lying cunts in our community](../posts/on-background-music/){:target="_blank"} as documented in my journey and it is important to learn about discernment.
+Long story short, I believed for the 27 years of my previous life that if God existed, then He would hate a rampant homosexual like me based purely on religious stereotypes. My life hit rock bottom in 2024, and I almost threw myself off the fifth-floor balcony right in front of my younger sister before He came to save me. I bought a humanity's bestseller a month prior, immediately after getting kicked out of the gay/bi-naturist campsite Rosebay in Peterborough, United Kingdom, for giving them free full-site Wi-Fi coverage because they were nice to me in the beginning and made me feel like an adopted son. During which my relationship with my biological family fell apart. I started reading the bestseller after a sequence of incomprehensible events. I documented the entire journey truthfully in my posts. I found out the straight cunts lied, and they most likely failed not only logical reasoning but also reading comprehension in school.
 
-Everything can be simplified down to two rules and assuming you did not fail your logical reasoning and reading comprehension in school then you should be able to deduce the following. Don't be [a cunt](../posts/on-commandments-and-the-law#definition-of-a-cunt){:target="_blank"}.
+If any esteemed hypocrites tell you God hates you because of who you are or what you did, show them [this post on homosexuality](../posts/on-homosexuality/){:target="_blank"}, [this post on blasphemy](../posts/on-blasphemy/){:target="_blank"}, [this post on lust and guilt](../posts/on-lust-and-guilt/){:target="_blank"}, and inform them politely that they took the Lord's name in vain, and the Lord will not hold them guiltless. Know that you are loved. What the straight cunts do not know is some of us love getting poked in our buttholes, and some love poking buttholes, just as some hypocrites love hiking and some love travelling. We also spend significant effort in aftercare getting to know each other and exploring less abominable shared interests, including but not limited to philosophy and theology. Our love for each other could be out of [genuine love and care rather than lust](../posts/on-sexual-theology/){:target="_blank"}. That said, there are also [lying cunts in our community](../posts/on-background-music/){:target="_blank"}, as documented in my journey, and it is crucial to learn about discernment.
 
-Whatever it is that you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand and we see the abomination of desolation that is [modern academia and higher education](../posts/on-faith-precedes-reason/){:target="_blank"} today. Stupid cunts who could neither reason nor read are comparing theology with the study of unicorns and fairytales.
+There are only two rules, and assuming you did not fail your logical reasoning and reading comprehension in school, you should be able to deduce the following. Don't be [a cunt](../posts/on-commandments-and-the-law/#definition-of-a-cunt){:target="_blank"}.
 
-God is the Father, the Son, and the Holy Spirit. Most importantly, God is love. Love is the greatest amount of sacrifice one is willing to make. Just ask a father what they are willing to sacrifice for their child.
+Whatever you do, do it with love, faith and hope. Love always comes first. We had to learn how to love by ourselves because some illogical and illiterate straight cunts lied. They built their houses on the sand, and we see the abomination of desolation that is [modern academia and higher education](../posts/on-faith-precedes-reason/){:target="_blank"} today. Stupid cunts who could neither reason nor read are comparing theology with the study of unicorns and fairytales.
+
+God is the Father, the Son, and the Holy Spirit. Most importantly, God is love. Love is the greatest sacrifice one is willing to make. Just ask any father what they are willing to sacrifice for their child.
 
 ---
 
-1 John 4:7–12
+## 1 John 4:7–12
 
 God Is Love
 
@@ -27,7 +29,49 @@ God Is Love
 
 ---
 
-1 Corinthians 13
+## Romans 13:8–10
+
+Fulfilling the Law Through Love
+
+[8] Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. [9] For the commandments, “You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet,” and any other commandment, are summed up in this word: “You shall love your neighbor as yourself.” [10] Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+---
+
+## Matthew 7:1–5
+
+Judging Others
+
+[1] “Judge not, that you be not judged. [2] For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. [3] Why do you see the speck that is in your brother’s eye, but do not notice the log that is in your own eye? [4] Or how can you say to your brother, ‘Let me take the speck out of your eye,’ when there is the log in your own eye? [5] You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother’s eye. (ESV)
+
+---
+
+## Matthew 9:13
+
+[13] Go and learn what this means: ‘I desire mercy, and not sacrifice.’ For I came not to call the righteous, but sinners.” (ESV)
+
+---
+
+## Matthew 12:7
+
+[7] And if you had known what this means, ‘I desire mercy, and not sacrifice,’ you would not have condemned the guiltless. (ESV)
+
+---
+
+## Matthew 22:34–40
+
+The Great Commandment
+
+[34] But when the Pharisees heard that he had silenced the Sadducees, they gathered together. [35] And one of them, a lawyer, asked him a question to test him. [36] “Teacher, which is the great commandment in the Law?” [37] And he said to him, “You shall love the Lord your God with all your heart and with all your soul and with all your mind. [38] This is the great and first commandment. [39] And a second is like it: You shall love your neighbor as yourself. [40] On these two commandments depend all the Law and the Prophets.” (ESV)
+
+---
+
+## John 15:12–17
+
+[12] “This is my commandment, that you love one another as I have loved you. [13] Greater love has no one than this, that someone lay down his life for his friends. [14] You are my friends if you do what I command you. [15] No longer do I call you servants, for the servant does not know what his master is doing; but I have called you friends, for all that I have heard from my Father I have made known to you. [16] You did not choose me, but I chose you and appointed you that you should go and bear fruit and that your fruit should abide, so that whatever you ask the Father in my name, he may give it to you. [17] These things I command you, so that you will love one another. (ESV)
+
+---
+
+## 1 Corinthians 13
 
 The Way of Love
 
@@ -41,14 +85,4 @@ The Way of Love
 
 ---
 
-Matthew 22:34–40
-
-The Great Commandment
-
-[34] But when the Pharisees heard that he had silenced the Sadducees, they gathered together. [35] And one of them, a lawyer, asked him a question to test him. [36] “Teacher, which is the great commandment in the Law?” [37] And he said to him, “You shall love the Lord your God with all your heart and with all your soul and with all your mind. [38] This is the great and first commandment. [39] And a second is like it: You shall love your neighbor as yourself. [40] On these two commandments depend all the Law and the Prophets.” (ESV)
-
-![](/x7PwBJs5Kzs2yCz3S2.jpg)
-
-You can buy me a cup of coffee by visiting [my.club](https://myclub.hesaid.love/){:target="_blank"} (NSFW). The only thing you will ever receive is my wholehearted gratitude and a personal thank you. I will not say God bless. Whether the Lord blesses you is between Him, your conscience and you. I have no say in any of them as I learned by betrayal from everyone in my life. There will not be any special content and you get to view my stream recordings the same as everyone else who did not buy me coffee.
-
-You can watch my somewhat-frequent-but-no-promises adult online streams at [Chaturbate](https://chaturbate.hesaid.love){:target="_blank"} and [Stripchat](https://stripchat.hesaid.love){:target="_blank"}. They are probably extremely NSFW most of the time, but not guaranteed. I'm still working on ideas and you are more than welcome to [make suggestions](../pgp){:target="_blank"} I'm open-minded enough to try most things as long as they are biblical, which is determined by reading scripture and confirming with my Bro the Holy Spirit, not heresy taught by esteemed hypocrites like the ones you often find in churches. You might find me doing weird stuff like coding, 3D printing or reading humanity's bestseller. We can also just chat about a wide range of topics including but not limited to mathematics, physics, computer science, philosophy and theology. Happy to engage in respectful discussions with one simple rule, we must let each other finish our sentences.
+![Be salt not salty](/x7PwBJs5Kzs2yCz3S2.jpg)
