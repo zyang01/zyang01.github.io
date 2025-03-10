@@ -86,3 +86,5 @@ The Way of Love
 ---
 
 ![Be salt not salty](/x7PwBJs5Kzs2yCz3S2.jpg)
+
+![We found love in a hopeless place](/f8a4QV5GXS7QE48Haq.png)
