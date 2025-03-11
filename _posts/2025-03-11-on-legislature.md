@@ -8,6 +8,17 @@ In my typical fashion, I tried spamming the UK Parliament earlier today after sc
 
 I will spend the rest of today reflecting on my hypocritical behaviour of not having faith in the United Kingdom's legislature. I'm not being sarcastic this time.
 
+---
+
+## Isaiah 49:4
+
+ [4] But I said, “I have labored in vain;<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;I have spent my strength for nothing and vanity;<br>
+ yet surely my right is with the LORD,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and my recompense with my God.” (ESV)<br>
+
+---
+
 ## On Love, Artificial Intelligence and Narcissistic Personality Disorder
 
 Dear Member of Parliament,
