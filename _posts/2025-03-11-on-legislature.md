@@ -32,7 +32,7 @@ I hope this email finds you well.
 
 Read this email in your preferred language:<br>
 🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}<br>
-🌐 ipfs://bafybeicz2q7h7nbqdulwzshswdpyejdnhvta7zq5nqkgqdcum55xbust2i<br>
+🌐 ipfs://bafybeicisy3p7wnvrmattzb7cnqi43bdlmrqgg466e5myovc2u3k3yzdcm<br>
 
 🌎 [Select Your Language](https://hesaid.love/posts/on-legislature/){:target="_blank"} 📩<br>
 ✅ 🇬🇧 English: Click the link to translate this email into your language.<br>
