@@ -80,6 +80,8 @@ Barnet, London<br>
 
 ---
 
+![Remember Lot's wife](/6h93kexuawxz.jpg)
+
 ## Fast Lane - Bad Meets Evil
 
 <div id='rg_embed_link_49521' class='rg_embed_link' data-song-id='49521'>Read <a href='https://genius.com/Bad-meets-evil-fast-lane-lyrics'>“Fast Lane” by Bad Meets Evil</a> on Genius</div> <script crossorigin src='https://genius.com/songs/49521/embed.js'></script>
