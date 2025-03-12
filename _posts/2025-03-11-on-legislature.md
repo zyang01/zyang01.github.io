@@ -5,13 +5,13 @@ date: 2025-03-11 14:50 +0000
 pin: true
 ---
 
-In my typical fashion, I tried spamming the UK Parliament earlier today after scraping the email addresses of 642 MPs. I also have a list of legislative assembly websites from 190+ countries that may or may not have been loaded into a Redis sorted set on an AWS EC2 instance for web scraping. The UK Parliament email server blocked my first attempt at sending the following email to 100 MPs. Then I realised my message might not be that important, and the MPs I was emailing could have a life to save today. Reading my email might not be the most constructive use of their valuable time. If my message is indeed that important, then surely one email should be more than enough. I called it a day after writing to a handful of Lords, who say Jesus Christ and Artificial Intelligence the most, according to TheyWorkForYou.com.
+In my typical fashion, I tried spamming the UK Parliament earlier today after scraping the email addresses of 642 MPs. I also have a list of legislatures from 190+ countries that may or may not have been loaded into a Redis sorted set on an AWS EC2 instance for web scraping. The UK Parliament email server blocked my first attempt at sending the following email to 100 MPs. Then I realised my message might not be that important, and the MPs I was emailing could have a life to save today. Reading my email might not be the most constructive use of their valuable time. If my message is indeed that important, then surely one email should be more than enough. I called it a day after writing to a handful of Lords, who say Jesus Christ and Artificial Intelligence the most, according to TheyWorkForYou.com.
 
 I will spend the rest of today reflecting on my hypocritical behaviour of not having faith in the United Kingdom's legislature.
 
 I'm not being sarcastic this time.
 
-Edit: Representatives from major political parties in [legislatures in 190+ countries](https://github.com/zyang01/email-scraping/blob/main/gov/legislatures.csv){:target="_blank"} will be receiving the updated email. I spent nearly a decade trying to predict financial market price movement in the next second, and I declared bankruptcy five months ago. Do you know how annoying it was to stumble across random passages in a bestseller written nearly 2,000 years ago and find out I had been accidentally fulfilling prophecies? 🤦🤷🙄
+Edit: Representatives from [legislatures in 190+ countries](https://github.com/zyang01/email-scraping/blob/main/gov/legislatures.csv){:target="_blank"} will be receiving the updated email. I spent nearly a decade trying to predict financial market price movement in the next second, and I declared bankruptcy five months ago. Do you know how annoying it was to stumble across random passages in a bestseller written nearly 2,000 years ago and find out I had been accidentally fulfilling prophecies? 🤦🤷🙄
 
 ---
 
