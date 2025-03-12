@@ -26,6 +26,10 @@ Edit: Representatives from [legislatures in 190+ countries](https://github.com/z
 
 ## On Love, Artificial Intelligence and Narcissistic Personality Disorder
 
+Dear Member of Legislature,
+
+I hope this email finds you well.
+
 Read this email in your preferred language:<br>
 🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}<br>
 
@@ -53,10 +57,6 @@ Read this email in your preferred language:<br>
 ✅ 🇮🇷 فارسی (Persian - Farsi): برای ترجمه این ایمیل به زبان خود روی لینک کلیک کنید.<br>
 ✅ 🇹🇭 ไทย (Thai): คลิกลิงก์เพื่อแปลอีเมลนี้เป็นภาษาของคุณ<br>
 ✅ 🇰🇪🇹🇿 Kiswahili (Swahili): Bofya kiungo ili kutafsiri barua pepe hii kwa lugha yako.<br>
-
-Dear Member of Parliament,
-
-I hope this email finds you well.
 
 My name is Aaron. I'm a 28-year-old rampant homosexual currently residing in Barnet, London. In the last decade, I have studied four undergraduate degrees in the United Kingdom, including mathematics, physics, computer science, philosophy, and modern ballet. Less than 12 months ago, I worked remotely as a software engineer and consultant with a mid-six-figure pretax income. I single-handedly financially supported two adult younger siblings to study in London, paying overseas student fees.
 
