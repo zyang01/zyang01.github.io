@@ -10,6 +10,8 @@ I will spend the rest of today reflecting on my hypocritical behaviour of not ha
 
 I'm not being sarcastic this time.
 
+Edit: Representatives from major political parties in [legislatures in 190+ countries](https://github.com/zyang01/email-scraping/blob/main/gov/legislatures.csv){:target="_blank"} will be receiving the updated email. I spent nearly a decade trying to predict financial market price movement in the next second, and I declared bankruptcy five months ago. Do you know how annoying it was to stumble across random passages in a bestseller written nearly 2,000 years ago and find out I had been accidentally fulfilling prophecies? 🤦🤷🙄
+
 ---
 
 ## Isaiah 49:4
@@ -22,6 +24,34 @@ I'm not being sarcastic this time.
 ---
 
 ## On Love, Artificial Intelligence and Narcissistic Personality Disorder
+
+Read this email in your preferred language:<br>
+🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}<br>
+
+🌎 [Select Your Language](https://hesaid.love/posts/on-legislature/){:target="_blank"} 📩<br>
+✅ 🇬🇧 English: Click the link to translate this email into your language.<br>
+✅ 🇪🇸 Español (Spanish): Haga clic en el enlace para traducir este correo a su idioma.<br>
+✅ 🇫🇷 Français (French): Cliquez sur le lien pour traduire cet e-mail dans votre langue.<br>
+✅ 🇷🇺 Русский (Russian): Нажмите на ссылку, чтобы перевести это письмо на ваш язык.<br>
+✅ 🇨🇳 中文 (Chinese - Simplified): 点击链接，将此电子邮件翻译成您的语言。<br>
+✅ 🇦🇪 العربية (Arabic): انقر على الرابط لترجمة هذا البريد الإلكتروني إلى لغتك.<br>
+✅ 🇮🇳 हिन्दी (Hindi): अपनी भाषा में अनुवाद करने के लिए लिंक पर क्लिक करें।<br>
+✅ 🇵🇹 Português (Portuguese): Clique no link para traduzir este e-mail para o seu idioma.<br>
+✅ 🇧🇩 বাংলা (Bengali): আপনার ভাষায় অনুবাদ করতে লিঙ্কে ক্লিক করুন।<br>
+✅ 🇯🇵 日本語 (Japanese): リンクをクリックして、このメールをあなたの言語に翻訳してください。<br>
+✅ 🇩🇪 Deutsch (German): Klicken Sie auf den Link, um diese E-Mail in Ihre Sprache zu übersetzen.<br>
+✅ 🇵🇰 اردو (Urdu): اپنی زبان میں ترجمہ کرنے کے لیے لنک پر کلک کریں۔<br>
+✅ 🇮🇳 ਪੰਜਾਬੀ (Punjabi): ਆਪਣੇ ਭਾਸ਼ਾ ਵਿੱਚ ਅਨੁਵਾਦ ਕਰਨ ਲਈ ਲਿੰਕ 'ਤੇ ਕਲਿੱਕ ਕਰੋ।<br>
+✅ 🇮🇳 తెలుగు (Telugu): మీ భాషలోకి అనువదించడానికి లింక్‌పై క్లిక్ చేయండి.<br>
+✅ 🇮🇳 मराठी (Marathi): आपल्या भाषेत भाषांतरित करण्यासाठी लिंकवर क्लिक करा.<br>
+✅ 🇮🇳🇱🇰 தமிழ் (Tamil): உங்கள் மொழிக்கு மொழிபெயர்க்க இணைப்பை கிளிக் செய்யவும்.<br>
+✅ 🇹🇷 Türkçe (Turkish): E-postayı dilinize çevirmek için bağlantıya tıklayın.<br>
+✅ 🇻🇳 Tiếng Việt (Vietnamese): Nhấp vào liên kết để dịch email này sang ngôn ngữ của bạn.<br>
+✅ 🇰🇷 한국어 (Korean): 이 이메일을 귀하의 언어로 번역하려면 링크를 클릭하세요.<br>
+✅ 🇮🇹 Italiano (Italian): Fai clic sul link per tradurre questa email nella tua lingua.<br>
+✅ 🇮🇷 فارسی (Persian - Farsi): برای ترجمه این ایمیل به زبان خود روی لینک کلیک کنید.<br>
+✅ 🇹🇭 ไทย (Thai): คลิกลิงก์เพื่อแปลอีเมลนี้เป็นภาษาของคุณ<br>
+✅ 🇰🇪🇹🇿 Kiswahili (Swahili): Bofya kiungo ili kutafsiri barua pepe hii kwa lugha yako.<br>
 
 Dear Member of Parliament,
 
@@ -46,3 +76,9 @@ Aaron Yang<br>
 HeSaidLove.com<br>
 11 March 2025<br>
 Barnet, London<br>
+
+---
+
+## Fast Lane - Bad Meets Evil
+
+<div id='rg_embed_link_49521' class='rg_embed_link' data-song-id='49521'>Read <a href='https://genius.com/Bad-meets-evil-fast-lane-lyrics'>“Fast Lane” by Bad Meets Evil</a> on Genius</div> <script crossorigin src='https://genius.com/songs/49521/embed.js'></script>
