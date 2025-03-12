@@ -26,13 +26,13 @@ Edit: Representatives from [legislatures in 190+ countries](https://github.com/z
 
 ## On Love, Artificial Intelligence and Narcissistic Personality Disorder
 
-Dear Member of Legislature,
+Dear Member of the Legislature,
 
 I hope this email finds you well.
 
 Read this email in your preferred language:<br>
 🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}<br>
-🌐 ipfs://bafybeicz2q7h7nbqdulwzshswdpyejdnhvta7zq5nqkgqdcum55xbust2i
+🌐 ipfs://bafybeicz2q7h7nbqdulwzshswdpyejdnhvta7zq5nqkgqdcum55xbust2i<br>
 
 🌎 [Select Your Language](https://hesaid.love/posts/on-legislature/){:target="_blank"} 📩<br>
 ✅ 🇬🇧 English: Click the link to translate this email into your language.<br>
