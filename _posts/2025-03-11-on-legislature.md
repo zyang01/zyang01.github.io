@@ -16,7 +16,7 @@ Edit: Representatives from [legislatures in 190+ countries](https://github.com/z
 13 March 2025 Update: Sprinkled [1,335 representatives](https://dl.hesaid.love/campaignRecipients_2500541_3432911_0211dad95f5c60db3590c02dbc60e821.csv
 ){:target="_blank"} from legislatures. The number is accidentally [very Daniel](https://www.gotquestions.org/tribulation-1260-1290-1335-days.html){:target="_blank"}. Startling [3,225 government officials](https://dl.hesaid.love/campaignRecipients_2501789_3432911_c150a2903025aa06d6289a42b5ee0096.csv){:target="_blank"}, including Benjamin Netanyahu. Shared with [777 recipients](https://dl.hesaid.love/campaignRecipients_2502635_3432911_2e6dce838b3cec25c230de30dc4b753d.csv){:target="_blank"} from 70+ international LGBTQIA+ organisations, including the [European Forum of LGBTI+ Christian Groups](https://www.lgbtchristians.eu/){:target="_blank"}. The theology, philosophy, computer science, economics faculties and drug laboratories (a.k.a. business schools) of abominations of desolation around the world next.
 
-I will keep [shouting love at the world](#the-flood---take-that) till the day He comes back or I die, whichever comes first.
+I will keep [shouting love at the world](#shouting-love) till the day He comes back or I die, whichever comes first.
 
 ---
 
@@ -74,7 +74,7 @@ Aside from the economic impact, my latest realisation over this past weekend inv
 
 You can find more details on my blog HeSaidLove.com. I faithfully and truthfully documented my 170-day journey through 270+ posts. You will also find the draft manifesto for a new political party I intend to launch shortly in the United Kingdom.
 
-I believe I'm supposed to bring you the following message.
+<span id="shouting-love">I believe I'm supposed to bring you the following message.</span>
 
 Love is the greatest sacrifice one is willing to make. Just ask any father what they are willing to sacrifice for their child.
 
