@@ -14,3 +14,7 @@ All of the stereotypes I had about Christianity turned out to be wrong once I st
 And no, Christianity is not a religion. Why would you call the truth a religion?
 
 I will slap you with the bestseller if you inform me the truth is subjective in person.
+
+---
+
+![PLS HELP](/tZC3qndFY6msRF4j7k.jpg)
