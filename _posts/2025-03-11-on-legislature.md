@@ -13,8 +13,10 @@ I'm not being sarcastic this time.
 
 Edit: Representatives from [legislatures in 190+ countries](https://github.com/zyang01/email-scraping/blob/main/gov/legislatures.csv){:target="_blank"} will be receiving the updated email. I spent nearly a decade trying to predict financial market price movement in the next second, and I declared bankruptcy five months ago. Do you know how annoying it was to stumble across random passages in a bestseller written nearly 2,000 years ago and find out I had been accidentally fulfilling prophecies? 🤦🤷🙄
 
-13 March 2025 Update: sprinkled [1,335 representatives](https://dl.hesaid.love/campaignRecipients_2500541_3432911_0211dad95f5c60db3590c02dbc60e821.csv
-){:target="_blank"} from legislatures. The number is accidentally [very Daniel](https://www.gotquestions.org/tribulation-1260-1290-1335-days.html){:target="_blank"}.
+13 March 2025 Update: Sprinkled [1,335 representatives](https://dl.hesaid.love/campaignRecipients_2500541_3432911_0211dad95f5c60db3590c02dbc60e821.csv
+){:target="_blank"} from legislatures. The number is accidentally [very Daniel](https://www.gotquestions.org/tribulation-1260-1290-1335-days.html){:target="_blank"}. Startling 3,225 government officials, including Benjamin Netanyahu. Shared with 777 recipients from 70+ international LGBTQIA+ organisations, including the [European Forum of LGBTI+ Christian Groups](https://www.lgbtchristians.eu/){:target="_blank"}. The theology, philosophy, computer science, economics faculties and drug laboratories (a.k.a. business schools) of abominations of desolation globally next.
+
+I will keep [shouting love at the world](#the-flood---take-that) till the day He comes back or I die, whichever comes first.
 
 ---
 
@@ -85,6 +87,10 @@ Barnet, London<br>
 ---
 
 ![Remember Lot's wife](/6h93kexuawxz.jpg)
+
+## The Flood - Take That
+
+<div id='rg_embed_link_2307790' class='rg_embed_link' data-song-id='2307790'>Read <a href='https://genius.com/Take-that-the-flood-lyrics'>“The Flood” by Take That</a> on Genius</div> <script crossorigin src='https://genius.com/songs/2307790/embed.js'></script>
 
 ## Fast Lane - Bad Meets Evil
 
