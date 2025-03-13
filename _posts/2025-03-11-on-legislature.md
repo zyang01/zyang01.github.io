@@ -27,6 +27,34 @@ I will keep [shouting love](#shouting-love) at the world till the day He comes b
  yet surely my right is with the LORD,<br>
   &nbsp;&nbsp;&nbsp;&nbsp;and my recompense with my God.” (ESV)<br>
 
+## Matthew 24:1–2
+
+Jesus Foretells Destruction of the Temple
+
+[1] Jesus left the temple and was going away, when his disciples came to point out to him the buildings of the temple. [2] But he answered them, “You see all these, do you not? Truly, I say to you, there will not be left here one stone upon another that will not be thrown down.” (ESV)
+
+## Mark 12:41–44
+
+The Widow’s Offering
+
+[41] And he sat down opposite the treasury and watched the people putting money into the offering box. Many rich people put in large sums. [42] And a poor widow came and put in two small copper coins, which make a penny. [43] And he called his disciples to him and said to them, “Truly, I say to you, this poor widow has put in more than all those who are contributing to the offering box. [44] For they all contributed out of their abundance, but she out of her poverty has put in everything she had, all she had to live on.” (ESV)
+
+## Mark 13:1–2
+
+Jesus Foretells Destruction of the Temple
+
+[1] And as he came out of the temple, one of his disciples said to him, “Look, Teacher, what wonderful stones and what wonderful buildings!” [2] And Jesus said to him, “Do you see these great buildings? There will not be left here one stone upon another that will not be thrown down.” (ESV)
+
+## Luke 21:1–6
+
+The Widow’s Offering
+
+[1] Jesus looked up and saw the rich putting their gifts into the offering box, [2] and he saw a poor widow put in two small copper coins. [3] And he said, “Truly, I tell you, this poor widow has put in more than all of them. [4] For they all contributed out of their abundance, but she out of her poverty put in all she had to live on.”
+
+Jesus Foretells Destruction of the Temple
+
+[5] And while some were speaking of the temple, how it was adorned with noble stones and offerings, he said, [6] “As for these things that you see, the days will come when there will not be left here one stone upon another that will not be thrown down.” (ESV)
+
 ---
 
 ## On Love, Artificial Intelligence and Narcissistic Personality Disorder
