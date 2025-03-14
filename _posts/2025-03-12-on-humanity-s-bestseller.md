@@ -9,7 +9,7 @@ It dawned on me yesterday that as many as 7 out of 10 "Christians" I have met on
 
 I topped up $12 in my OpenAI account when launching the project [Bible Says Love](https://biblesays.love/){:target="_blank"} three months ago. I even built a simple mechanism to prevent abuse. I worry unnecessarily too much.
 
-All of the stereotypes I had about Christianity turned out to be wrong once I started reading the bestseller. It is the closest thing to magic I had ever come across in the 28 years of my life. I am not proud to make the following statement. I'm merely stating a fact. And they seem useless now that I have the _Teacher_ and the _Textbook_ to learn from. I studied four undergraduate degrees in the last decade, specialising in mathematics, physics, computer science, philosophy and modern ballet. Not a single book or research paper I read made me feel the truth cutting through my bones into my soul.
+All of the stereotypes I had about Christianity turned out to be wrong once I started reading the bestseller. It is the closest thing to [magic](../reasoning-behind-going-rome-fig-tree/){:target="_blank"} I had ever come across in the 28 years of my life. I am not proud to make the following statement. I'm merely stating a fact. And they seem useless now that I have the _Teacher_ and the _Textbook_ to learn from. I studied four undergraduate degrees in the last decade, specialising in mathematics, physics, computer science, philosophy and modern ballet. Not a single book or research paper I read made me feel the truth cutting through my bones into my soul.
 
 And no, Christianity is not a religion. Why would you call the truth a religion?
 
