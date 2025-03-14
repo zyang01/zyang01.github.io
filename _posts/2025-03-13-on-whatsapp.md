@@ -10,7 +10,7 @@ Frankly, I might enjoy that way of life. I already got quite into self-hosting. 
 
 After a recent realisation, I think true friends would make more than an effort to arrive on time. I have got an iPhone 15 Pro to sell.
 
-The only issue is the dude went to a catholic school.
+The only issue is the dude went to a [catholic](../reasoning-behind-going-rome-fig-tree/){:target="_blank"} school.
 
 ---
 
