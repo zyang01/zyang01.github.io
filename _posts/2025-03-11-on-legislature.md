@@ -31,33 +31,43 @@ I will keep [shouting love](#shouting-love) at the world till the day He comes b
  yet surely my right is with the LORD,<br>
   &nbsp;&nbsp;&nbsp;&nbsp;and my recompense with my God.” (ESV)<br>
 
-## Matthew 24:1–2
+## Ezekiel 22:30
 
-Jesus Foretells Destruction of the Temple
+[30] And I sought for a man among them who should build up the wall and stand in the breach before me for the land, that I should not destroy it, but I found none. (ESV)
 
-[1] Jesus left the temple and was going away, when his disciples came to point out to him the buildings of the temple. [2] But he answered them, “You see all these, do you not? Truly, I say to you, there will not be left here one stone upon another that will not be thrown down.” (ESV)
+## Isaiah 58:6–12
 
-## Mark 12:41–44
-
-The Widow’s Offering
-
-[41] And he sat down opposite the treasury and watched the people putting money into the offering box. Many rich people put in large sums. [42] And a poor widow came and put in two small copper coins, which make a penny. [43] And he called his disciples to him and said to them, “Truly, I say to you, this poor widow has put in more than all those who are contributing to the offering box. [44] For they all contributed out of their abundance, but she out of her poverty has put in everything she had, all she had to live on.” (ESV)
-
-## Mark 13:1–2
-
-Jesus Foretells Destruction of the Temple
-
-[1] And as he came out of the temple, one of his disciples said to him, “Look, Teacher, what wonderful stones and what wonderful buildings!” [2] And Jesus said to him, “Do you see these great buildings? There will not be left here one stone upon another that will not be thrown down.” (ESV)
-
-## Luke 21:1–6
-
-The Widow’s Offering
-
-[1] Jesus looked up and saw the rich putting their gifts into the offering box, [2] and he saw a poor widow put in two small copper coins. [3] And he said, “Truly, I tell you, this poor widow has put in more than all of them. [4] For they all contributed out of their abundance, but she out of her poverty put in all she had to live on.”
-
-Jesus Foretells Destruction of the Temple
-
-[5] And while some were speaking of the temple, how it was adorned with noble stones and offerings, he said, [6] “As for these things that you see, the days will come when there will not be left here one stone upon another that will not be thrown down.” (ESV)
+ [6] “Is not this the fast that I choose:<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;to loose the bonds of wickedness,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;to undo the straps of the yoke,<br>
+ to let the oppressed go free,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and to break every yoke?<br>
+ [7] Is it not to share your bread with the hungry<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and bring the homeless poor into your house;<br>
+ when you see the naked, to cover him,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and not to hide yourself from your own flesh?<br>
+ [8] Then shall your light break forth like the dawn,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and your healing shall spring up speedily;<br>
+ your righteousness shall go before you;<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;the glory of the LORD shall be your rear guard.<br>
+ [9] Then you shall call, and the LORD will answer;<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;you shall cry, and he will say, ‘Here I am.’<br>
+ If you take away the yoke from your midst,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;the pointing of the finger, and speaking wickedness,<br>
+ [10] if you pour yourself out for the hungry<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy the desire of the afflicted,<br>
+ then shall your light rise in the darkness<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and your gloom be as the noonday.<br>
+ [11] And the LORD will guide you continually<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy your desire in scorched places<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;and make your bones strong;<br>
+ and you shall be like a watered garden,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;like a spring of water,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;whose waters do not fail.<br>
+ [12] And your ancient ruins shall be rebuilt;<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;you shall raise up the foundations of many generations;<br>
+ you shall be called the repairer of the breach,<br>
+  &nbsp;&nbsp;&nbsp;&nbsp;the restorer of streets to dwell in. (ESV)<br>
 
 ---
 
@@ -123,7 +133,3 @@ Barnet, London<br>
 ## The Flood - Take That
 
 <div id='rg_embed_link_2307790' class='rg_embed_link' data-song-id='2307790'>Read <a href='https://genius.com/Take-that-the-flood-lyrics'>“The Flood” by Take That</a> on Genius</div> <script crossorigin src='https://genius.com/songs/2307790/embed.js'></script>
-
-## Fast Lane - Bad Meets Evil
-
-<div id='rg_embed_link_49521' class='rg_embed_link' data-song-id='49521'>Read <a href='https://genius.com/Bad-meets-evil-fast-lane-lyrics'>“Fast Lane” by Bad Meets Evil</a> on Genius</div> <script crossorigin src='https://genius.com/songs/49521/embed.js'></script>
