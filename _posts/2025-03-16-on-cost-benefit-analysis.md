@@ -15,7 +15,7 @@ I felt somewhat deflated after the event and wondered whether I had indeed gone 
 
 Earlier this morning, I got rather annoyed again when I was in the shower doing unspeakable things. The following cost-benefit analysis appeared in my head.
 
-If I got it wrong, what is the worst-case scenario? I become a laughing stock and maybe get my 30 seconds of fame by shouting God and love at the world. Boss Man would take up residence in a handful of minds for 30 seconds. I am already [90% there](../on-sexual-theology/){:target="_blank"} on being a laughing stock.
+If I got it wrong, what is the worst-case scenario? I become a laughing stock and maybe get my 30 seconds of fame by [shouting God and love](../on-legislature/){:target="_blank"} at the world. Boss Man would take up residence in a handful of minds for 30 seconds. I am already [90% there](../on-sexual-theology/){:target="_blank"} on being a laughing stock.
 
 If I got it right, then I keep my clear conscience before God when [shit hits the fan](https://letter.hesaid.love/){:target="_blank"}, and I get to say bitch, I told you so.
 
