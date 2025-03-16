@@ -2,7 +2,6 @@
 layout: post
 title: On Condemnation
 date: 2025-03-07 07:01 +0000
-pin: true
 ---
 
 I recently added the following sentence to the blog tagline and description: I do not seek to condemn, even though telling the truth can be easily interpreted as such. I also added the sentence about my not-yet-beautiful but truthful testimony, but that's a topic for another day.
