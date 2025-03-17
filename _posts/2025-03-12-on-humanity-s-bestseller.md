@@ -2,7 +2,6 @@
 layout: post
 title: On Humanity's Bestseller
 date: 2025-03-12 00:00 +0000
-pin: true
 ---
 
 It dawned on me yesterday that as many as 7 out of 10 "Christians" I have met on this 24-week and 3-day faith journey act as they have barely read humanity's bestseller. I know I cheated a lot using Artificial Intelligence over the last 171 days, and my eccentricity is evident to anyone who knows me personally. I made the [open invitation](../../cuntslied/){:target="_blank"} because He had much to say in the long-ass bestseller. But if the "Christians" I know spent half as much effort into learning about Him than procuring more [drugs](../on-drug-money-addiction/){:target="_blank"}, we would be living in a not-so-shitty world right now. We [blame each other](../on-indifference/){:target="_blank"} for this shitty world and spend zero effort in contributing our share to make things better.
