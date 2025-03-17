@@ -71,7 +71,7 @@ A new friend of mine mentioned the following highlighted verse from the Book of 
 
 ---
 
-According to my half-assed ChatGPT research, Joel is one of the twelve minor prophets like Jonah, but Joel is not lucky enough to be included in an Abrahamic religion like Jonah. However, Isaiah and Ezekiel are both recognised in all Abrahamic religions, which I do not subscribe to. So here you go.
+According to my half-assed ChatGPT research, Joel is one of the twelve minor prophets like Jonah, but Joel is not lucky enough to be included in all Abrahamic religions like Jonah. However, Isaiah and Ezekiel are both recognised in all Abrahamic religions, which I do not subscribe to. So here you go.
 
 ---
 
