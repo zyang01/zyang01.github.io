@@ -10,6 +10,119 @@ If you like to doubt, which is understandable given that we are all human and im
 
 If you are a "believer" who "thinks" I have gone batshit crazy, then please consider whether trust and belief are [transitive](https://en.wikipedia.org/wiki/Transitive_relation){:target="_blank"} and whether you truly believe if you consider me nuts. I would also strongly encourage you to take a revision course on the [definition of faith](https://www.biblegateway.com/verse/en/Hebrews%2011%3A1){:target="_blank"} outlined in Hebrews 11. We should stop this wishy-washy nonsense, and you are either in or you are out. No more foot in both camps bullshit.
 
+## Edit
+
+After publishing the original post, I was thinking about the next major policy item - education, which would be an exceptionally tricky area for obvious reasons. Then, I had the epiphany that I already had the answer in the original post. We need to stop making [the mistake](../on-genesis-3-fall-man/){:target="_blank"} we have been making since Genesis 3, the fall of man, and start putting God first rather than reason and end up with nothing but death. Seek Him first, and He will make our paths straight rather than lean on our insufficient understanding and go at it with our half-assed reasoning and comprehension.
+
+---
+
+### Proverbs 3:1–8
+
+Trust in the LORD with All Your Heart
+
+ [1] My son, do not forget my teaching,  
+  &nbsp;&nbsp;&nbsp;&nbsp;but let your heart keep my commandments,  
+ [2] for length of days and years of life  
+  &nbsp;&nbsp;&nbsp;&nbsp;and peace they will add to you.  
+
+ [3] Let not steadfast love and faithfulness forsake you;  
+  &nbsp;&nbsp;&nbsp;&nbsp;bind them around your neck;  
+  &nbsp;&nbsp;&nbsp;&nbsp;write them on the tablet of your heart.  
+ [4] So you will find favor and good success  
+  &nbsp;&nbsp;&nbsp;&nbsp;in the sight of God and man.  
+
+ **[5] Trust in the LORD with all your heart,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and do not lean on your own understanding.**  
+ **[6] In all your ways acknowledge him,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and he will make straight your paths.**  
+ [7] Be not wise in your own eyes;  
+  &nbsp;&nbsp;&nbsp;&nbsp;fear the LORD, and turn away from evil.  
+ [8] It will be healing to your flesh  
+  &nbsp;&nbsp;&nbsp;&nbsp;and refreshment to your bones. (ESV)  
+
+---
+
+I mentioned previously [the first call](../on-holy-spirit-miracles/){:target="_blank"} we had after not speaking for 11 years with my welcoming party lasted 6.5 hours. We were arguing about semantic differences in the Bible. Boss Man told me to make the argument known to you in this post. I was 100% certain God exists, but only 95% about Jesus Christ as my Lord and Saviour in that call. My welcoming party was trying to bash me into confessing Jesus Christ as my Lord and Saviour. My issue with that? Tomato, tomahto. I could not comprehend the significance of the name Jesus since it's written and pronounced differently in different languages. Why not stick with God when referring to God? Two days later, I read Romans 1-4 and felt the truth cutting through my bones into my soul. If you have never read Romans 1-4 before, Mr Noisy Gong kept talking about a Dude named Jesus Christ in it, which I later found out was a letter written to the Romans rather than a personal letter written to me by some dude named Roman. At that point, I was like "Okay, fine, all in Jesus Christ as my Lord and Saviour."
+
+Now, if you subscribe to a religion, which I do not, or you have yet to encounter God personally, perhaps due to learning whatever through doctrine written by some historical figures whose names are not on the No. 1 bestseller of humanity, then I would advise you to ask God with your heart to show you who He is.
+
+A new friend of mine mentioned the following highlighted verse from the Book of Joel yesterday.
+
+---
+
+### Joel 2:27–32
+
+ [27] You shall know that I am in the midst of Israel,  
+  and that I am the LORD your God and there is none else.  
+ And my people shall never again be put to shame.  
+
+ The LORD Will Pour Out His Spirit  
+
+ **[28] “And it shall come to pass afterward,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**that I will pour out my Spirit on all flesh;**  
+ **your sons and your daughters shall prophesy,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**your old men shall dream dreams,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and your young men shall see visions.**  
+ [29] Even on the male and female servants  
+  &nbsp;&nbsp;&nbsp;&nbsp;in those days I will pour out my Spirit.  
+
+ [30] “And I will show wonders in the heavens and on the earth, blood and fire and columns of smoke. [31] The sun shall be turned to darkness, and the moon to blood, before the great and awesome day of the LORD comes. [32] And it shall come to pass that everyone who calls on the name of the LORD shall be saved. For in Mount Zion and in Jerusalem there shall be those who escape, as the LORD has said, and among the survivors shall be those whom the LORD calls. (ESV)
+
+---
+
+According to my half-assed ChatGPT research, Joel is one of the twelve minor prophets like Jonah, but Joel is not lucky enough to be included in an Abrahamic religion like Jonah. However, Isaiah and Ezekiel are both recognised in all Abrahamic religions, which I do not subscribe to. So here you go.
+
+---
+
+### Isaiah 44:1–8
+
+Israel the LORD’s Chosen
+
+ [1] “But now hear, O Jacob my servant,  
+  &nbsp;&nbsp;&nbsp;&nbsp;Israel whom I have chosen!  
+ [2] Thus says the LORD who made you,  
+  &nbsp;&nbsp;&nbsp;&nbsp;who formed you from the womb and will help you:  
+ Fear not, O Jacob my servant,  
+  &nbsp;&nbsp;&nbsp;&nbsp;Jeshurun whom I have chosen.  
+ [3] For I will pour water on the thirsty land,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and streams on the dry ground;  
+ **I will pour my Spirit upon your offspring,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;and my blessing on your descendants.  
+ [4] They shall spring up among the grass  
+  &nbsp;&nbsp;&nbsp;&nbsp;like willows by flowing streams.  
+ [5] This one will say, ‘I am the LORD’s,’  
+  &nbsp;&nbsp;&nbsp;&nbsp;another will call on the name of Jacob,  
+ and another will write on his hand, ‘The LORD’s,’  
+  &nbsp;&nbsp;&nbsp;&nbsp;and name himself by the name of Israel.”  
+
+ Besides Me There Is No God  
+
+ [6] Thus says the LORD, the King of Israel  
+  &nbsp;&nbsp;&nbsp;&nbsp;and his Redeemer, the LORD of hosts:  
+ “I am the first and I am the last;  
+  &nbsp;&nbsp;&nbsp;&nbsp;besides me there is no god.  
+ [7] Who is like me? Let him proclaim it.  
+  &nbsp;&nbsp;&nbsp;&nbsp;Let him declare and set it before me,  
+ since I appointed an ancient people.  
+  &nbsp;&nbsp;&nbsp;&nbsp;Let them declare what is to come, and what will happen.  
+ [8] Fear not, nor be afraid;  
+  &nbsp;&nbsp;&nbsp;&nbsp;have I not told you from of old and declared it?  
+  &nbsp;&nbsp;&nbsp;&nbsp;And you are my witnesses!  
+ Is there a God besides me?  
+  &nbsp;&nbsp;&nbsp;&nbsp;There is no Rock; I know not any.” (ESV)  
+
+### Ezekiel 39:25–29
+
+The LORD Will Restore Israel
+
+[25] “Therefore thus says the Lord GOD: Now I will restore the fortunes of Jacob and have mercy on the whole house of Israel, and I will be jealous for my holy name. [26] They shall forget their shame and all the treachery they have practiced against me, when they dwell securely in their land with none to make them afraid, [27] when I have brought them back from the peoples and gathered them from their enemies’ lands, and through them have vindicated my holiness in the sight of many nations. [28] Then they shall know that I am the LORD their God, because I sent them into exile among the nations and then assembled them into their own land. I will leave none of them remaining among the nations anymore. **[29] And I will not hide my face anymore from them, when I pour out my Spirit upon the house of Israel, declares the Lord GOD.”** (ESV)
+
+---
+
+## Challenge
+
+I inquired about Him once in the first 27 years of my life, and He showed up five weeks later. Do you dare to have a go? I dare you, bitch.
+
 ---
 
 ## Matthew 6:25–34
@@ -103,6 +216,12 @@ Robbing God
 ## Policy Areas
 
 <embed src="https://dl.hesaid.love/Political_Manifesto_Policy_Areas.pdf" type="application/pdf" width="100%" height="600px" />
+
+## Faith to Fall Back On - Hunter Hayes
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2mTcupWbSEH3CpOQyd9Ztx?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<div id='rg_embed_link_182389' class='rg_embed_link' data-song-id='182389'>Read <a href='https://genius.com/Hunter-hayes-faith-to-fall-back-on-lyrics'>“Faith to Fall Back On” by Hunter Hayes</a> on Genius</div> <script crossorigin src='https://genius.com/songs/182389/embed.js'></script>
 
 ## Right Here Waiting (澀谷駅前等) - Felix Lam (Felix 林智樂)
 
