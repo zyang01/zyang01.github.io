@@ -180,7 +180,7 @@ The descendants of Adonikam are 667 as counted in Nehemiah 7:18 instead of 666 i
 
 <embed src="https://dl.hesaid.love/chitchat_666_667_chatgpt.pdf" type="application/pdf" width="100%" height="600px" />
 
-Given we are in an intellectual, spiritual, moral and ethical decay where a Christian informed me yesterday that trying to save other people is a sign of pride, I have decided to follow Boss Man regardless of what the antichrists pretending to be Christians say. Although, I kinda realised I had been following Him all my life even in the 27 years of my previous life. The only thing is I did not know His name, but I did know His other glorious name - Truth. I learned 157 days ago that His name is Jesus Christ, my Lord and Saviour.
+<span id="antichrist-not-christian">Given we are in an intellectual, spiritual, moral and ethical decay where a Christian informed me yesterday that trying to save other people is a sign of pride</span>, I have decided to follow Boss Man regardless of what the antichrists pretending to be Christians say. Although, I kinda realised I had been following Him all my life even in the 27 years of my previous life. The only thing is I did not know His name, but I did know His other glorious name - Truth. I learned 157 days ago that His name is Jesus Christ, my Lord and Saviour.
 
 Boss Man gave me a list containing 113,119 Assyrian camps yesterday. I have got some nations to sprinkle and startle, as well as proclaiming the gospel of the kingdom throughout the whole world as a testimony to all nations.
 
