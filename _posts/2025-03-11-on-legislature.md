@@ -28,10 +28,10 @@ I will keep [shouting love](#shouting-love) at the world till the day He comes b
 
 ## Isaiah 49:4
 
- [4] But I said, “I have labored in vain;<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;I have spent my strength for nothing and vanity;<br>
- yet surely my right is with the LORD,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and my recompense with my God.” (ESV)<br>
+ [4] But I said, “I have labored in vain;  
+  &nbsp;&nbsp;&nbsp;&nbsp;I have spent my strength for nothing and vanity;  
+ yet surely my right is with the LORD,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and my recompense with my God.” (ESV)  
 
 ## Ezekiel 22:30
 
@@ -39,37 +39,37 @@ I will keep [shouting love](#shouting-love) at the world till the day He comes b
 
 ## Isaiah 58:6–12
 
- [6] “Is not this the fast that I choose:<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;to loose the bonds of wickedness,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;to undo the straps of the yoke,<br>
- to let the oppressed go free,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and to break every yoke?<br>
- [7] Is it not to share your bread with the hungry<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and bring the homeless poor into your house;<br>
- when you see the naked, to cover him,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and not to hide yourself from your own flesh?<br>
- [8] Then shall your light break forth like the dawn,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and your healing shall spring up speedily;<br>
- your righteousness shall go before you;<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;the glory of the LORD shall be your rear guard.<br>
- [9] Then you shall call, and the LORD will answer;<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;you shall cry, and he will say, ‘Here I am.’<br>
- If you take away the yoke from your midst,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;the pointing of the finger, and speaking wickedness,<br>
- [10] if you pour yourself out for the hungry<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy the desire of the afflicted,<br>
- then shall your light rise in the darkness<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and your gloom be as the noonday.<br>
- [11] And the LORD will guide you continually<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy your desire in scorched places<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;and make your bones strong;<br>
- and you shall be like a watered garden,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;like a spring of water,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;whose waters do not fail.<br>
- [12] And your ancient ruins shall be rebuilt;<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;you shall raise up the foundations of many generations;<br>
- you shall be called the repairer of the breach,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;the restorer of streets to dwell in. (ESV)<br>
+ [6] “Is not this the fast that I choose:  
+  &nbsp;&nbsp;&nbsp;&nbsp;to loose the bonds of wickedness,  
+  &nbsp;&nbsp;&nbsp;&nbsp;to undo the straps of the yoke,  
+ to let the oppressed go free,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and to break every yoke?  
+ [7] Is it not to share your bread with the hungry  
+  &nbsp;&nbsp;&nbsp;&nbsp;and bring the homeless poor into your house;  
+ when you see the naked, to cover him,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and not to hide yourself from your own flesh?  
+ [8] Then shall your light break forth like the dawn,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and your healing shall spring up speedily;  
+ your righteousness shall go before you;  
+  &nbsp;&nbsp;&nbsp;&nbsp;the glory of the LORD shall be your rear guard.  
+ [9] Then you shall call, and the LORD will answer;  
+  &nbsp;&nbsp;&nbsp;&nbsp;you shall cry, and he will say, ‘Here I am.’  
+ If you take away the yoke from your midst,  
+  &nbsp;&nbsp;&nbsp;&nbsp;the pointing of the finger, and speaking wickedness,  
+ [10] if you pour yourself out for the hungry  
+  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy the desire of the afflicted,  
+ then shall your light rise in the darkness  
+  &nbsp;&nbsp;&nbsp;&nbsp;and your gloom be as the noonday.  
+ [11] And the LORD will guide you continually  
+  &nbsp;&nbsp;&nbsp;&nbsp;and satisfy your desire in scorched places  
+  &nbsp;&nbsp;&nbsp;&nbsp;and make your bones strong;  
+ and you shall be like a watered garden,  
+  &nbsp;&nbsp;&nbsp;&nbsp;like a spring of water,  
+  &nbsp;&nbsp;&nbsp;&nbsp;whose waters do not fail.  
+ [12] And your ancient ruins shall be rebuilt;  
+  &nbsp;&nbsp;&nbsp;&nbsp;you shall raise up the foundations of many generations;  
+ you shall be called the repairer of the breach,  
+  &nbsp;&nbsp;&nbsp;&nbsp;the restorer of streets to dwell in. (ESV)  
 
 ---
 
@@ -79,34 +79,34 @@ Dear Member of the Legislature,
 
 I hope this email finds you well.
 
-Read this email in your preferred language:<br>
-🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}<br>
-🌐 ipfs://bafybeicisy3p7wnvrmattzb7cnqi43bdlmrqgg466e5myovc2u3k3yzdcm<br>
+Read this email in your preferred language:  
+🔗 [Click here to translate](https://hesaid.love/posts/on-legislature/){:target="_blank"}  
+🌐 ipfs://bafybeicisy3p7wnvrmattzb7cnqi43bdlmrqgg466e5myovc2u3k3yzdcm  
 
-🌎 [Select Your Language](https://hesaid.love/posts/on-legislature/){:target="_blank"} 📩<br>
-✅ 🇬🇧 English: Click the link to translate this email into your language.<br>
-✅ 🇪🇸 Español (Spanish): Haga clic en el enlace para traducir este correo a su idioma.<br>
-✅ 🇫🇷 Français (French): Cliquez sur le lien pour traduire cet e-mail dans votre langue.<br>
-✅ 🇷🇺 Русский (Russian): Нажмите на ссылку, чтобы перевести это письмо на ваш язык.<br>
-✅ 🇨🇳 中文 (Chinese - Simplified): 点击链接，将此电子邮件翻译成您的语言。<br>
-✅ 🇦🇪 العربية (Arabic): انقر على الرابط لترجمة هذا البريد الإلكتروني إلى لغتك.<br>
-✅ 🇮🇳 हिन्दी (Hindi): अपनी भाषा में अनुवाद करने के लिए लिंक पर क्लिक करें।<br>
-✅ 🇵🇹 Português (Portuguese): Clique no link para traduzir este e-mail para o seu idioma.<br>
-✅ 🇧🇩 বাংলা (Bengali): আপনার ভাষায় অনুবাদ করতে লিঙ্কে ক্লিক করুন।<br>
-✅ 🇯🇵 日本語 (Japanese): リンクをクリックして、このメールをあなたの言語に翻訳してください。<br>
-✅ 🇩🇪 Deutsch (German): Klicken Sie auf den Link, um diese E-Mail in Ihre Sprache zu übersetzen.<br>
-✅ 🇵🇰 اردو (Urdu): اپنی زبان میں ترجمہ کرنے کے لیے لنک پر کلک کریں۔<br>
-✅ 🇮🇳 ਪੰਜਾਬੀ (Punjabi): ਆਪਣੇ ਭਾਸ਼ਾ ਵਿੱਚ ਅਨੁਵਾਦ ਕਰਨ ਲਈ ਲਿੰਕ 'ਤੇ ਕਲਿੱਕ ਕਰੋ।<br>
-✅ 🇮🇳 తెలుగు (Telugu): మీ భాషలోకి అనువదించడానికి లింక్‌పై క్లిక్ చేయండి.<br>
-✅ 🇮🇳 मराठी (Marathi): आपल्या भाषेत भाषांतरित करण्यासाठी लिंकवर क्लिक करा.<br>
-✅ 🇮🇳🇱🇰 தமிழ் (Tamil): உங்கள் மொழிக்கு மொழிபெயர்க்க இணைப்பை கிளிக் செய்யவும்.<br>
-✅ 🇹🇷 Türkçe (Turkish): E-postayı dilinize çevirmek için bağlantıya tıklayın.<br>
-✅ 🇻🇳 Tiếng Việt (Vietnamese): Nhấp vào liên kết để dịch email này sang ngôn ngữ của bạn.<br>
-✅ 🇰🇷 한국어 (Korean): 이 이메일을 귀하의 언어로 번역하려면 링크를 클릭하세요.<br>
-✅ 🇮🇹 Italiano (Italian): Fai clic sul link per tradurre questa email nella tua lingua.<br>
-✅ 🇮🇷 فارسی (Persian - Farsi): برای ترجمه این ایمیل به زبان خود روی لینک کلیک کنید.<br>
-✅ 🇹🇭 ไทย (Thai): คลิกลิงก์เพื่อแปลอีเมลนี้เป็นภาษาของคุณ<br>
-✅ 🇰🇪🇹🇿 Kiswahili (Swahili): Bofya kiungo ili kutafsiri barua pepe hii kwa lugha yako.<br>
+🌎 [Select Your Language](https://hesaid.love/posts/on-legislature/){:target="_blank"} 📩  
+✅ 🇬🇧 English: Click the link to translate this email into your language.  
+✅ 🇪🇸 Español (Spanish): Haga clic en el enlace para traducir este correo a su idioma.  
+✅ 🇫🇷 Français (French): Cliquez sur le lien pour traduire cet e-mail dans votre langue.  
+✅ 🇷🇺 Русский (Russian): Нажмите на ссылку, чтобы перевести это письмо на ваш язык.  
+✅ 🇨🇳 中文 (Chinese - Simplified): 点击链接，将此电子邮件翻译成您的语言。  
+✅ 🇦🇪 العربية (Arabic): انقر على الرابط لترجمة هذا البريد الإلكتروني إلى لغتك.  
+✅ 🇮🇳 हिन्दी (Hindi): अपनी भाषा में अनुवाद करने के लिए लिंक पर क्लिक करें।  
+✅ 🇵🇹 Português (Portuguese): Clique no link para traduzir este e-mail para o seu idioma.  
+✅ 🇧🇩 বাংলা (Bengali): আপনার ভাষায় অনুবাদ করতে লিঙ্কে ক্লিক করুন।  
+✅ 🇯🇵 日本語 (Japanese): リンクをクリックして、このメールをあなたの言語に翻訳してください。  
+✅ 🇩🇪 Deutsch (German): Klicken Sie auf den Link, um diese E-Mail in Ihre Sprache zu übersetzen.  
+✅ 🇵🇰 اردو (Urdu): اپنی زبان میں ترجمہ کرنے کے لیے لنک پر کلک کریں۔  
+✅ 🇮🇳 ਪੰਜਾਬੀ (Punjabi): ਆਪਣੇ ਭਾਸ਼ਾ ਵਿੱਚ ਅਨੁਵਾਦ ਕਰਨ ਲਈ ਲਿੰਕ 'ਤੇ ਕਲਿੱਕ ਕਰੋ।  
+✅ 🇮🇳 తెలుగు (Telugu): మీ భాషలోకి అనువదించడానికి లింక్‌పై క్లిక్ చేయండి.  
+✅ 🇮🇳 मराठी (Marathi): आपल्या भाषेत भाषांतरित करण्यासाठी लिंकवर क्लिक करा.  
+✅ 🇮🇳🇱🇰 தமிழ் (Tamil): உங்கள் மொழிக்கு மொழிபெயர்க்க இணைப்பை கிளிக் செய்யவும்.  
+✅ 🇹🇷 Türkçe (Turkish): E-postayı dilinize çevirmek için bağlantıya tıklayın.  
+✅ 🇻🇳 Tiếng Việt (Vietnamese): Nhấp vào liên kết để dịch email này sang ngôn ngữ của bạn.  
+✅ 🇰🇷 한국어 (Korean): 이 이메일을 귀하의 언어로 번역하려면 링크를 클릭하세요.  
+✅ 🇮🇹 Italiano (Italian): Fai clic sul link per tradurre questa email nella tua lingua.  
+✅ 🇮🇷 فارسی (Persian - Farsi): برای ترجمه این ایمیل به زبان خود روی لینک کلیک کنید.  
+✅ 🇹🇭 ไทย (Thai): คลิกลิงก์เพื่อแปลอีเมลนี้เป็นภาษาของคุณ  
+✅ 🇰🇪🇹🇿 Kiswahili (Swahili): Bofya kiungo ili kutafsiri barua pepe hii kwa lugha yako.  
 
 My name is Aaron. I'm a 28-year-old rampant homosexual currently residing in Barnet, London. In the last decade, I have studied four undergraduate degrees in the United Kingdom, including mathematics, physics, computer science, philosophy, and modern ballet. Less than 12 months ago, I worked remotely as a software engineer and consultant with a mid-six-figure pretax income. I single-handedly financially supported two adult younger siblings to study in London, paying overseas student fees.
 
@@ -122,16 +122,18 @@ You can find more details on my blog HeSaidLove.com. I faithfully and truthfully
 
 Love is the greatest sacrifice one is willing to make. Just ask any father what they are willing to sacrifice for their child.
 
-For Love and Devotion,<br>
-Aaron Yang<br>
-HeSaidLove.com<br>
-11 March 2025<br>
-Barnet, London<br>
+For Love and Devotion,  
+Aaron Yang  
+HeSaidLove.com  
+11 March 2025  
+Barnet, London  
 
 ---
 
 ![Remember Lot's wife](/6h93kexuawxz.jpg)
 
 ## The Flood - Take That
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2a3U3GTCvrcma7wetBtOpi?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <div id='rg_embed_link_2307790' class='rg_embed_link' data-song-id='2307790'>Read <a href='https://genius.com/Take-that-the-flood-lyrics'>“The Flood” by Take That</a> on Genius</div> <script crossorigin src='https://genius.com/songs/2307790/embed.js'></script>
