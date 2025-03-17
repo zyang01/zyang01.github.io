@@ -57,3 +57,11 @@ If you are [an antichrist](../on-revelation-13/#antichrist-not-christian){:targe
 ## Meme
 
 ![F for failure](/d15b2d9925fb70e0628ee8749b878326.jpeg)
+
+## What Do I Know? - Ed Sheeran
+
+![What Do I Know? - Ed Sheeran](/eaz8vwgfeWp5AQCdBP.png)
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2pJZ1v8HezrAoZ0Fhzby92?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<div id='rg_embed_link_2953771' class='rg_embed_link' data-song-id='2953771'>Read <a href='https://genius.com/Ed-sheeran-what-do-i-know-lyrics'>“What Do I Know?” by Ed Sheeran</a> on Genius</div> <script crossorigin src='https://genius.com/songs/2953771/embed.js'></script>
