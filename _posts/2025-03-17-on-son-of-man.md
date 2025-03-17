@@ -53,3 +53,7 @@ I don't know about the Son of Man. But I intend to finish reading the bestseller
 Also, are you fucking telling me no one has walked in His statues in the last 2,000 fucking years?
 
 If you are [an antichrist](../on-revelation-13/#antichrist-not-christian){:target="_blank"} pretending to be a Christian, feel free to let me know whether I accidentally climbed the Hall of Faith on my second week as a believer. I give zero fuck what you think if you don't know what the Hall of Faith is.
+
+## Meme
+
+![F for failure](/d15b2d9925fb70e0628ee8749b878326.jpeg)
