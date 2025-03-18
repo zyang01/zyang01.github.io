@@ -17,7 +17,7 @@ Earlier this morning, I got rather annoyed again when I was in the shower doing 
 
 If I got it wrong, what is the worst-case scenario? I become a laughing stock and maybe get my 30 seconds of fame by [shouting God and love](../on-legislature/){:target="_blank"} at the world. Boss Man would take up residence in a handful of minds for 30 seconds. I am already [90% there](../on-sexual-theology/){:target="_blank"} on being a laughing stock.
 
-If I got it right, then I keep my clear conscience before God when [shit hits the fan](https://letter.hesaid.love/){:target="_blank"}, and I get to say bitch, I told you so.
+If I got it right, then I keep my clear conscience before God when [shit hits the fan](https://letter.hesaid.love/){:target="_blank"}, and I get to say [bitch](../on-money-and-fiscal-policy/#challenge){:target="_blank"}, I told you so.
 
 The annoying part? I realised He set me up by giving me the [thought experiment](../on-gethsemane/){:target="_blank"} to test pastors and theologians. And I already made my choice when I pulled that [stunt](../reasoning-behind-preaching-mainland-china-jonah-style/){:target="_blank"} in mainland China last October.
 

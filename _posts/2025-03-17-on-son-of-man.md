@@ -40,7 +40,7 @@ For some weird reason, the following verse keeps calling and motivating me, unli
 
 ---
 
-I don't know about the Son of Man. But I intend to finish reading the bestseller, start a political party in the United Kingdom, and save some rampant homosexuals this year. Totally unrelated to the following verse, I also found little faith and caught a bunch of false teachers and antichrists. I wonder what kind of shitshow the Son of Man will find. That day will be fun for sure.
+I don't know about the Son of Man. But I intend to finish reading the bestseller, start a political party in the United Kingdom, and save some rampant homosexuals this year. Totally unrelated to the following verse, I also found [little faith](../on-condemnation/){:target="_blank"} and caught a bunch of [false teachers and antichrists](../on-revelation-13/){:target="_blank"}. I wonder what kind of shitshow the Son of Man will find. That day will be fun for sure.
 
 ---
 
