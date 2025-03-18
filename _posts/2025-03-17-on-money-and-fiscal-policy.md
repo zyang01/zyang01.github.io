@@ -124,7 +124,17 @@ The LORD Will Restore Israel
 
 I inquired about Him once in the first 27 years of my life, and He showed up five weeks later. Do you dare to have a go? I dare you, bitch.
 
+I use the word **bitch** to describe anyone who is unfaithful. I was a bitch myself back when I did not have faith. I am still a bitch sometimes especially when I'm late to meet my new friend for over half an hour.
+
 ---
+
+## Malachi 3:6–15
+
+Robbing God
+
+[6] “For I the LORD do not change; therefore you, O children of Jacob, are not consumed. [7] From the days of your fathers you have turned aside from my statutes and have not kept them. Return to me, and I will return to you, says the LORD of hosts. But you say, ‘How shall we return?’ [8] Will man rob God? Yet you are robbing me. But you say, ‘How have we robbed you?’ In your tithes and contributions. [9] You are cursed with a curse, for you are robbing me, the whole nation of you. **[10] Bring the full tithe into the storehouse, that there may be food in my house. And thereby put me to the test, says the LORD of hosts, if I will not open the windows of heaven for you and pour down for you a blessing until there is no more need.** [11] I will rebuke the devourer for you, so that it will not destroy the fruits of your soil, and your vine in the field shall not fail to bear, says the LORD of hosts. [12] Then all nations will call you blessed, for you will be a land of delight, says the LORD of hosts.
+
+**[13] “Your words have been hard against me, says the LORD. But you say, ‘How have we spoken against you?’ [14] You have said, ‘It is vain to serve God. What is the profit of our keeping his charge or of walking as in mourning before the LORD of hosts? [15] And now we call the arrogant blessed. Evildoers not only prosper but they put God to the test and they escape.’”** (ESV)
 
 ## Matthew 6:25–34
 
@@ -211,14 +221,6 @@ God’s Provision
 [10] I rejoiced in the Lord greatly that now at length you have revived your concern for me. You were indeed concerned for me, but you had no opportunity. [11] Not that I am speaking of being in need, for I have learned, in whatever situation I am, to be content. **[12] I know how to be brought low, and I know how to abound. In any and every circumstance, I have learned the secret of facing plenty and hunger, abundance and need. [13] I can do all things through him who strengthens me.**
 
 [14] Yet it was kind of you to share my trouble. [15] And you Philippians yourselves know that in the beginning of the gospel, when I left Macedonia, no church entered into partnership with me in giving and receiving, except you only. [16] Even in Thessalonica you sent me help for my needs once and again. [17] Not that I seek the gift, but I seek the fruit that increases to your credit. **[18] I have received full payment, and more. I am well supplied, having received from Epaphroditus the gifts you sent, a fragrant offering, a sacrifice acceptable and pleasing to God. [19] And my God will supply every need of yours according to his riches in glory in Christ Jesus. [20] To our God and Father be glory forever and ever. Amen.** (ESV)
-
-## Malachi 3:6–15
-
-Robbing God
-
-[6] “For I the LORD do not change; therefore you, O children of Jacob, are not consumed. [7] From the days of your fathers you have turned aside from my statutes and have not kept them. Return to me, and I will return to you, says the LORD of hosts. But you say, ‘How shall we return?’ [8] Will man rob God? Yet you are robbing me. But you say, ‘How have we robbed you?’ In your tithes and contributions. [9] You are cursed with a curse, for you are robbing me, the whole nation of you. **[10] Bring the full tithe into the storehouse, that there may be food in my house. And thereby put me to the test, says the LORD of hosts, if I will not open the windows of heaven for you and pour down for you a blessing until there is no more need.** [11] I will rebuke the devourer for you, so that it will not destroy the fruits of your soil, and your vine in the field shall not fail to bear, says the LORD of hosts. [12] Then all nations will call you blessed, for you will be a land of delight, says the LORD of hosts.
-
-**[13] “Your words have been hard against me, says the LORD. But you say, ‘How have we spoken against you?’ [14] You have said, ‘It is vain to serve God. What is the profit of our keeping his charge or of walking as in mourning before the LORD of hosts? [15] And now we call the arrogant blessed. Evildoers not only prosper but they put God to the test and they escape.’”** (ESV)
 
 ## Policy Areas
 
