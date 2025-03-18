@@ -2,7 +2,6 @@
 layout: post
 title: On Cost-benefit Analysis
 date: 2025-03-16 21:45 +0000
-pin: true
 ---
 
 I attended an event yesterday called _Tea With Your MP_. I downed several cups of coffee, which are considered luxury goods for me nowadays. It has been weeks since I had my favourite vanilla latte with coconut milk.
