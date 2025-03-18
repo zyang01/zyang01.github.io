@@ -69,8 +69,16 @@ I cheated again by asking ChatGPT to write the draft party constitution. Frankly
 
 <embed src="https://dl.hesaidlove.com/Great_Commandment_of_Jesus.pdf" type="application/pdf" width="100%" height="700px" />
 
+---
+
 ## Born to Be Wild - Steppenwolf
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3lN8PP6R2IxbLP05QpYXng?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <div id='rg_embed_link_124052' class='rg_embed_link' data-song-id='124052'>Read <a href='https://genius.com/Steppenwolf-born-to-be-wild-lyrics'>“Born to Be Wild” by Steppenwolf</a> on Genius</div> <script crossorigin src='https://genius.com/songs/124052/embed.js'></script>
+
+---
+
+## Meme
+
+![New phone who dis](/27c53d19791a5fb7aa008aadf3a0606b.jpeg)
