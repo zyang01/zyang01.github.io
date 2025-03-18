@@ -39,7 +39,7 @@ Prepare humanity to defend against [the socioeconomic tsunami](https://letter.he
 
 ## Draft Party Emblem
 
-I have been working on the party emblem and have three draft designs. ChatGPT kept rebelling against my instruction to reflect the full party slogan—"Love in Action. Faith in People. Hope for the Future."—in the design. I resorted to asking my new faithful friend again if he had any faithful artist friends who might be interested. The gig would be fully credited. The down payment is in the form of a bestseller with a full invoice paid on an unknown future date if they charge above-market premium rates.
+I have been working on the party emblem and have three draft designs. ChatGPT kept rebelling against my instruction to reflect the full party slogan—"Love in Action. Faith in People. Hope for the Future."—in the design. I resorted to asking my faithful new friend again if he had any faithful artist friends who might be interested. The gig would be fully credited. The down payment is in the form of a bestseller with a full invoice paid on an unknown future date if they charge above-market premium rates.
 
 ---
 
