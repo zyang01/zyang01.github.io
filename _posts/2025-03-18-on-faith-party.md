@@ -61,6 +61,25 @@ After checking out the emblems of [existing political parties](https://www.elect
 
 ---
 
+### Edit Again
+
+I took a nap and just woke up feeling annoyed again at ChatGPT. It kept refusing to clean up the 2020s on both sides of the emblem and arrange the slogan as I instructed it to. As I was lying in bed listening to Ed Sheeran's [_Thinking out Loud_](https://open.spotify.com/track/34gCuhDGsG4bRPIf9bb02f?si=9f2626232c204b37){:target="_blank"}, I remembered the year 2020 was when I had my first calling. It was the first and only time I tried [MDMA](https://en.wikipedia.org/wiki/MDMA){:target="_blank"} in my life, and I messaged my friend, who was at [Keble College, Oxford](../on-confirmation/){:target="_blank"} the same year as me and the daughter of the Christian missionary in mainland China, who He told me to talk to and said the answer can be found there. As someone with a pretty severe [OCD](https://en.wikipedia.org/wiki/Obsessive%E2%80%93compulsive_disorder){:target="_blank"}, I like keeping records and I found the messages I sent five years ago on WeChat. I had not even touched a humanity's bestseller before then, let alone reading it. If you don't read simplified Chinese, I was using the pronoun 'It' rather than 'He'. The mobile app version of Google Translate has a camera function that you can use. You tell me if He exists.
+
+---
+
+<div style="display: flex; justify-content: space-between;">
+  <img src="/first_calling_wechat_1.jpg" alt="First calling WeChat part 1" style="max-width: 90%; height: auto;"/>
+  <img src="/first_calling_wechat_2.jpg" alt="First calling WeChat part 2" style="max-width: 90%; height: auto;"/>
+  <img src="/first_calling_wechat_3.jpg" alt="First calling WeChat part 3" style="max-width: 90%; height: auto;"/>
+  <img src="/first_calling_wechat_4.jpg" alt="First calling WeChat part 4" style="max-width: 90%; height: auto;"/>
+</div>
+
+---
+
+I had to do a reality check every morning I wake up even back in January this year. I would contemplate whether the last several months were real and whether I had gone absolutely batshit crazy and if I should go check into a mental hospital. Dude literally unscrewed the hinges and removed the door for me at this point. I cannot shut the door even if I want to. There is no going back and you cannot run away from God.
+
+Now you know why [I don't do MDMA](../on-drugs/){:target="_blank"}.
+
 ## Draft Party Constitution
 
 I cheated again by asking ChatGPT to write the draft party constitution. Frankly, I could not have done it better myself. It's slightly longer than one page, but considering the legal and formal language involved, it's still better than [Conservative's 58](https://public.conservatives.com/organisation-department/202101/Conservative%20Party%20Constitution%20%20as%20amended%20January%202021.pdf){:target="_blank"} and [Labour's 146](https://labour.org.uk/wp-content/uploads/2024/02/Rule-Book-2024.pdf){:target="_blank"}. You have to give credit where credit is due. The [full version](https://en.wikipedia.org/wiki/Bible){:target="_blank"} and more details can be found on humanity's bestseller.
