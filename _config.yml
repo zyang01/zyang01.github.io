@@ -19,10 +19,10 @@ timezone: Europe/London
 title: He Said Love # the main title
 
 tagline: >- # it will display as the subtitle
-  One of the luckiest people alive.
+  A meme theologian. One of the luckiest people alive.
 
 description: >- # used by seo meta and the atom feed
-  One of the luckiest people alive.
+  A meme theologian. One of the luckiest people alive.
 
 # Fill in the protocol & hostname for your site.
 # E.g. 'https://username.github.io', note that it does not end with a '/'.
