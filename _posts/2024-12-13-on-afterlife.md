@@ -1,7 +1,6 @@
 ---
 title: On Afterlife
 date: 2024-12-13 08:47:09 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 For the first 27 years of my former life as an agnostic, I never really thought about the afterlife. If you read my origin story on real-life-fantasy(dot)com, you will know that I had a pretty decent life until the events in the last 12 months. I was always grateful for the ups and downs I had and always thought it would be the same as before I was born after I passed away. I was content back then and I should be content after.

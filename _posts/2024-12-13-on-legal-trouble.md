@@ -1,7 +1,6 @@
 ---
 title: On Legal Trouble
 date: 2024-12-13 12:17:26 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 A former colleague informed me that certain languages in my recent posts could cause legal trouble for me.

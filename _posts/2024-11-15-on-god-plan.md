@@ -1,7 +1,6 @@
 ---
 title: On God's Plan
 date: 2024-11-15 11:02:16 +0000
-tags: [christbro,salvation,god]     # TAG names should always be lowercase
 ---
 
 I dunno. 🤷 

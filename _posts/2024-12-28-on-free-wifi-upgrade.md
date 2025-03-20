@@ -1,7 +1,6 @@
 ---
 title: On Free Wi-Fi Upgrade
 date: 2024-12-28 07:27:21 +0000
-tags: [christbro,bible,salvation,network,networking,internet,broadband,wifi,upgrade,isp,fttp]     # TAG names should always be lowercase
 ---
 
 So, turns out most residential internet service providers (ISP) in the United Kingdom don't block ports that are commonly blocked by cloud providers. And you can get full fibre at gigabit speed that comes with a static IP address for less than 12 cups of coffee (£50/$63) a month.

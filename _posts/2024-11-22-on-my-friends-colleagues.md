@@ -1,7 +1,6 @@
 ---
 title: On My Friends and Colleagues
 date: 2024-11-22 08:19:06 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 To be fair to everyone whose door I knocked on recently, the first 27 years of my life ended up in such a poop show that no one around me could realistically help me. 😂

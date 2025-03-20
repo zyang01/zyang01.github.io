@@ -1,7 +1,6 @@
 ---
 title: On My Conversion and Homosexuality
 date: 2024-11-17 07:12:59 +0000
-tags: [christbro,bible,salvation,lgbt,gospel,repentance]     # TAG names should always be lowercase
 ---
 
 There is another reason why I went all-in Jesus Christ as my Lord and Saviour after reading Romans 1-4 besides the letter telling me what I did wrong.

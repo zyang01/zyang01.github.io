@@ -1,7 +1,6 @@
 ---
 title: On Orange and Stonks
 date: 2024-12-28 16:40:40 +0000
-tags: [christbro,bible,salvation,stock,market]     # TAG names should always be lowercase
 ---
 
 I'm not massively sure how educated John of Patmos, the author of the Book of Revelation, was on the subject of chromatics, the study of colour, and I wonder how he would describe the colours on Cloudflare’s logo.

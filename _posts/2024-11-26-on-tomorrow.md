@@ -1,7 +1,6 @@
 ---
 title: On Tomorrow
 date: 2024-11-26 16:38:22 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Despite my life being literally on fire, I'm officially bankrupt and unemployed, I stopped worrying about tomorrow and became a five-year-old again. The only annoying thing is I still need to do my laundry because He said He’s not my mama and won’t do that for me. Maybe I should start taking the trash out as well. 🫣😳🙄

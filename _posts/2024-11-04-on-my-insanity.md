@@ -1,7 +1,6 @@
 ---
 title: On My Insanity
 date: 2024-11-04 20:26:16 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 After proving my insanity in a previous post titled "On My Sanity", I'm going to prove my sanity with a bit of church history.

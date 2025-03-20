@@ -1,7 +1,6 @@
 ---
 title: On Petition
 date: 2025-01-21 09:03:00 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I want to start a petition and would appreciate your support in learning how to spell good and evil. 🙏

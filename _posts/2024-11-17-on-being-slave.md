@@ -1,7 +1,6 @@
 ---
 title: On Being a Slave
 date: 2024-11-17 05:21:37 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 I thought I was entrusting my heart to my Lord and Saviour Jesus Christ going forward, but I realised my heart was never mine anyway. I was a slave all my life, and my heart was chained by my parents, siblings, and friends, most of whom take more than they give. But that doesn’t mean I’m faultless at all, on the contrary, I’m immeasurably guilty.

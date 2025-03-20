@@ -1,7 +1,6 @@
 ---
 title: On My Community 🌈
 date: 2025-01-03 17:11:50 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 
 ---
 

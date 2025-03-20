@@ -1,7 +1,6 @@
 ---
 title: On the Mark of the Beast
 date: 2024-10-28 11:35:08 +0000
-tags: [christbro,bible,revelation,markofthebeast]     # TAG names should always be lowercase
 ---
 
 Some random thoughts on the mark of the beast in the book of revelation.

@@ -1,7 +1,6 @@
 ---
 title: On the King of Kings (Will Be Kept Updated)
 date: 2024-11-22 21:25:49 +0000
-tags: [christbro,salvation,king,kingofkings]     # TAG names should always be lowercase
 ---
 
 My list so far has

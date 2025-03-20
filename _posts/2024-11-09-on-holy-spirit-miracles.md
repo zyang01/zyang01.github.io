@@ -1,7 +1,6 @@
 ---
 title: On the Holy Spirit and Miracles
 date: 2024-11-09 09:03:31 +0000
-tags: [christbro,bible,salvation,god]     # TAG names should always be lowercase
 ---
 
 When I had my first calling during COVID, He told me to go to a friend of mine, whose father happens to be a Christian missionary in mainland China, and He said the answers can be found there. As mentioned in a previous post titled "[Reasoning Behind Preaching in Mainland China Jonah Style](../reasoning-behind-preaching-mainland-china-jonah-style/){:target="_blank"}", I believed in God for about a week after and concluded that I must have been hallucinating.

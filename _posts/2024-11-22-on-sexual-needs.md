@@ -1,7 +1,6 @@
 ---
 title: On Sexual Needs
 date: 2024-11-22 13:50:19 +0000
-tags: [christbro,salvation,abstinence]     # TAG names should always be lowercase
 ---
 
 I think I'm gonna try abstinence until my Boss comes back and ask Him daily for strength and courage to overcome. I know it will be hard, pun very much unintended, but I think the cost-benefit ratio makes sense. 🥹

@@ -1,7 +1,6 @@
 ---
 title: On Persuasion
 date: 2024-11-07 23:20:45 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 Believe it or not, I sincerely hope I'm wrong about everything and I have simply gone absolutely batshit crazy and full of shit.

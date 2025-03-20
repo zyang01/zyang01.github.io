@@ -1,7 +1,6 @@
 ---
 title: On Job Offer
 date: 2024-12-24 04:26:39 +0000
-tags: [christbro,bible,salvation,job,offer,employment,unemployment]     # TAG names should always be lowercase
 ---
 
 Know anyone who might be interested and doesn't want to start claiming the jobseeker’s allowance in 2 years?

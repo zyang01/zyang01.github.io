@@ -1,7 +1,6 @@
 ---
 title: On Suicide
 date: 2024-11-11 08:15:41 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 A friend of mine said my recent posts are rather humorous and thought I was joking. There is nothing but the truth underneath all the humour.

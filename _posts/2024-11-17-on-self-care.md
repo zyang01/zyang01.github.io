@@ -1,7 +1,6 @@
 ---
 title: On Self Care
 date: 2024-11-17 06:03:45 +0000
-tags: [christbro,salvation,believer,faith]     # TAG names should always be lowercase
 ---
 
 I ran around giving my testimony to people I know from my old life quite a lot lately. One thing I noticed is everyone keeps telling me to care more about my own wellbeing. Could we fucking stop putting ourselves first and care more about each other?

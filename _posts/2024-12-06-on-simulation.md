@@ -1,7 +1,6 @@
 ---
 title: On Simulation
 date: 2024-12-06 06:13:33 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I think my atheist friend was pronounced dead at 6 AM UTC just now after the final nail in the coffin.

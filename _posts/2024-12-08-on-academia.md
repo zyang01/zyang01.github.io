@@ -1,7 +1,6 @@
 ---
 title: On Academia
 date: 2024-12-08 07:25:58 +0000
-tags: [christbro,bible,salvation,highereducation,academia,pride,ego,publication,synagogue]     # TAG names should always be lowercase
 ---
 
 Through my discussions with a couple of academics, I discovered something quite interesting after comparing my conversations with everyday folks from all sorts of different backgrounds throughout the week. I use a lot of simple everyday analogies to convey philosophical ideas so that they can be understood by almost everyone who did not have a formal education in philosophy, except the academics with a PhD on their résumé somewhere, not necessarily always in their titles.

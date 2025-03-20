@@ -1,7 +1,6 @@
 ---
 title: On Revenge
 date: 2024-12-14 07:35:16 +0000
-tags: [christbro,bible,salvation,calling,gospel,revenge,anger,evil,kindness]     # TAG names should always be lowercase
 ---
 
 To be honest, I was extremely angry after walking out of the delivery office yesterday and finding out the packages were heading to Belfast for destruction.

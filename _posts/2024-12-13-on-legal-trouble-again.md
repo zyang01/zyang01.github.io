@@ -1,7 +1,6 @@
 ---
 title: On Legal Trouble (Again)
 date: 2024-12-13 13:45:54 +0000
-tags: [christbro,bible,salvation,law,legal]     # TAG names should always be lowercase
 ---
 
 On second thought, I can't wait for the free publicity that comes with legal troubles. Just imagine the front page news and definitely saves me from another drone crash as well.

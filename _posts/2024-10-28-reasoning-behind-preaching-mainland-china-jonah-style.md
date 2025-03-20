@@ -1,7 +1,6 @@
 ---
 title: Reasoning Behind Preaching in Mainland China Jonah Style
 date: 2024-10-28 18:41:48 +0000
-tags: [christbro,bible,revelation,bookofjonah]     # TAG names should always be lowercase
 ---
 
 The [Book of Jonah](https://www.esv.org/Jonah+1/){:target="_blank"} and the [Book of Revelation](https://www.esv.org/Revelation+1/){:target="_blank"} are the first two books I read in the Bible. I laughed out loud the first time I read the story of Jonah, partly because it’s quite a funny story, but mainly because it’s the story of my life metaphorically speaking and no I didn’t get swallowed by a great fish in real life. Jonah tried to run away from God after his first calling. I had my first calling during COVID whilst in Scotland and believed in God for about a week afterwards, but concluded that I must have been hallucinating. Additionally, whatever Jonah tried to do with full effort failed and whatever he did half-assed succeeded without much effort. I tried to find the meaning of life without God and ended up with existentialism, nihilism, and anti-natalism. I put little effort into my education and ended up in the university whose alumni are the culprits behind the mess in British politics today. I sought after truth and knowledge my entire life and turns out they are written on the best seller in mankind's history, and took a 540 degree turn in life. 🥲

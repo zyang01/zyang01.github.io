@@ -1,7 +1,6 @@
 ---
 title: On Science
 date: 2024-11-15 11:25:40 +0000
-tags: [christbro,science,salvation,god]     # TAG names should always be lowercase
 ---
 
 Issac Newton - Christian

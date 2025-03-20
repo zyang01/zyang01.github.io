@@ -1,7 +1,6 @@
 ---
 title: On Indifference
 date: 2024-12-01 18:20:46 +0000
-tags: [christbro,bible,salvation,offer,explodingoffer]     # TAG names should always be lowercase
 ---
 
 This is real bad. I'm making my own memes now. 😱😱😱

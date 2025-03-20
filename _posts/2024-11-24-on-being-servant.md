@@ -1,7 +1,6 @@
 ---
 title: On Being a Servant
 date: 2024-11-24 07:39:14 +0000
-tags: [christbro,salvation,kingofkings,king]     # TAG names should always be lowercase
 ---
 
 He made me realise everything I have learned, every topic I have contemplated, and nearly every thought I have ever had could be of service to Him.

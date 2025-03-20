@@ -1,7 +1,6 @@
 ---
 title: On Humble Pie
 date: 2024-12-19 17:32:47 +0000
-tags: [christbro,bible,salvation,humblepie,justice]     # TAG names should always be lowercase
 ---
 
 I just got served a humble pie by my former employer after [steak](../on-steak){:target="_blank"}. They called the police and two officers arrived to have a friendly conversation with me and to help me do a quick inventory of my camping gear. I estimate around 70% of the information they received was either factually incorrect or taken out of context, but to be fair, I foolishly left those openings for my former employer to exploit by my [overly dramatic writing style](../on-second-coming-official){:target="_blank"} and [choice of memes](../on-swearin){:target="_blank"}.

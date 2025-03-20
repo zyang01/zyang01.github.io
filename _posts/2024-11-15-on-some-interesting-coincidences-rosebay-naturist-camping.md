@@ -1,7 +1,6 @@
 ---
 title: On Some Interesting Coincidences at Rosebay Naturist Camping
 date: 2024-11-15 09:16:50 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I'm just going to present some very interesting objective facts I found prior to my global tour, but I won't comment on them since most of my readers probably think that I have gone batshit crazy already. I won't add fuel to the fire this time. 😬

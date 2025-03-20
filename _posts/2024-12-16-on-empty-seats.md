@@ -1,7 +1,6 @@
 ---
 title: On Empty Seats
 date: 2024-12-16 12:43:51 +0000
-tags: [christbro,bible,salvation,sabbath,mistake,church,attendance]     # TAG names should always be lowercase
 ---
 
 I attended four services in four different churches this past weekend. I get extremely annoyed when I see empty seats, especially on a rainy day. You can’t go to church because it’s raining? Does that excuse fly with your earthly boss? If it doesn’t then why should it fly with your Heavenly Boss?

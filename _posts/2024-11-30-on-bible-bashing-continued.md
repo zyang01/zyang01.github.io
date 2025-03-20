@@ -1,7 +1,6 @@
 ---
 title: On Bible Bashing (Continued)
 date: 2024-11-30 16:04:54 +0000
-tags: [christbro,bible,salvation,gospel]     # TAG names should always be lowercase
 ---
 
 Normally I'm not one to boast, but the Lord said

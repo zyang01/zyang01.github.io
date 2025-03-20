@@ -1,7 +1,6 @@
 ---
 title: On Judging Others
 date: 2024-11-18 10:11:09 +0000
-tags: [christbro,bible,salvation,judgement]     # TAG names should always be lowercase
 ---
 
 Did you take the log out of your own eye?

@@ -1,7 +1,6 @@
 ---
 title: On Great British Weather
 date: 2024-12-13 17:26:25 +0000
-tags: [christbro,bible,salvation,retreat,holiday]     # TAG names should always be lowercase
 ---
 
 After the recent tirades of kicking, screaming and shouting, I have decided it's time to go on a retreat and enjoy some great British weather in the winter. I'm also physically exhausted after multiple trips of international travels.

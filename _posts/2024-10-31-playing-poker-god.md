@@ -1,7 +1,6 @@
 ---
 title: Playing Poker with God
 date: 2024-10-31 09:05:13 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Something to lighten up your day after the recent bombardment of heavy posts.

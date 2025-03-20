@@ -1,7 +1,6 @@
 ---
 title: On Indignity
 date: 2025-01-01 09:38:35 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 As alluded to previously, I don't know how to spell oversharing and I was a regular in Berghain’s basement as a rampant homosexual.

@@ -1,7 +1,6 @@
 ---
 title: On Knowing and Believing
 date: 2025-01-02 09:43:02 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I had a brief discussion on the difference between knowing and believing with my fellow computer scientist who seemed suspiciously well-educated on philosophy.

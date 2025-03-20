@@ -1,7 +1,6 @@
 ---
 title: On Fearing God
 date: 2024-12-01 05:48:47 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 If you are not a believer, then please ask yourself the following question.

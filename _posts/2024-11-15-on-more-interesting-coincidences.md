@@ -1,7 +1,6 @@
 ---
 title: On More Interesting Coincidences 🤡
 date: 2024-11-15 17:55:54 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 The full address of Rosebay Naturist Camping is Lordship End, French Drove, Peterborough PE6 0PP.

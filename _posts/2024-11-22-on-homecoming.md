@@ -1,7 +1,6 @@
 ---
 title: On Homecoming
 date: 2024-11-22 12:09:55 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 He told me to tell the world. So this is me telling the world. 🤷😂😘

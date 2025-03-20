@@ -1,7 +1,6 @@
 ---
 title: On Scientific Materialism
 date: 2024-11-16 20:39:13 +0000
-tags: [christbro,salvation,reality,solipsism,epistemology,philosophy,knowledge,meditation]     # TAG names should always be lowercase
 ---
 
 Have a read on the following topics.

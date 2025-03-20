@@ -1,7 +1,6 @@
 ---
 title: On Nihilism
 date: 2024-12-04 00:51:30 +0000
-tags: [christbro,bible,salvation,philosophy,nihilism,good,evil,ethics]     # TAG names should always be lowercase
 ---
 
 As mentioned in my previous posts, I [walked to the end of rational philosophy without God](../on-gdel-incompleteness-theorems/){:target="_blank"} and arrived at existentialism, nihilism and anti-natalism. I call them the three horsemen of rational philosophy and the fourth is death as always.

@@ -1,7 +1,6 @@
 ---
 title: On My Sanity
 date: 2024-10-30 08:39:14 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 In case anyone is wondering, I have objectively gone beyond insane at this point.

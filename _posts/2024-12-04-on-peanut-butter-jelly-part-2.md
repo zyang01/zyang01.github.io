@@ -1,7 +1,6 @@
 ---
 title: On Peanut Butter Jelly (Part 2)
 date: 2024-12-04 10:35:05 +0000
-tags: [christbro,bible,salvation,childhood,childish]     # TAG names should always be lowercase
 ---
 
 Ladies and gentlemen, boys and girls, please allow me to introduce project Peanut Butter Jelly, Part 2. This time you don't need to be a nerd with a 3D printer or know how to program an Arduino to spread the gospel like peanut butter jelly.

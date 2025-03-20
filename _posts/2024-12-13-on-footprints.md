@@ -1,7 +1,6 @@
 ---
 title: On Footprints
 date: 2024-12-13 22:59:27 +0000
-tags: [jesus,christbro,salvation]     # TAG names should always be lowercase
 ---
 
 In hindsight and looking back at the first 27 years of my life when I was an agnostic, I realised even at the lowest points where I thought it was me against my whole world including my parents, He was always there.

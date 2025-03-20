@@ -1,7 +1,6 @@
 ---
 title: On Higher Education
 date: 2024-11-16 08:20:10 +0000
-tags: [christbro,salvation,oxford,cambridge,god,science]     # TAG names should always be lowercase
 ---
 
 Did you know that out of the 44 colleges in Oxford University and 31 colleges in Cambridge University, only 1 college - Darwin College, Cambridge doesn’t have a chapel?

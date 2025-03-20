@@ -1,7 +1,6 @@
 ---
 title: On Bravery and Courage
 date: 2024-11-22 14:17:48 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Proverbs 3:5-6

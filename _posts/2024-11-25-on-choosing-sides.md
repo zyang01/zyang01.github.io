@@ -1,7 +1,6 @@
 ---
 title: On Choosing Sides
 date: 2024-11-25 01:32:33 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 Back when I was running around like a headless chicken trying to convince people that I was telling the truth and I hadn't gone crazy, I designed a theological question to test whether the person I was talking to truly believed in God.

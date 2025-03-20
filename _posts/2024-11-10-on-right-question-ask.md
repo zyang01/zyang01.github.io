@@ -1,7 +1,6 @@
 ---
 title: On the Right Question to Ask
 date: 2024-11-10 05:49:32 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 I went back to Keble College, Oxford little over a week ago and attended a group discussion on assisted dying organised by Chaplain Max.

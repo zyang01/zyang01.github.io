@@ -1,7 +1,6 @@
 ---
 title: On Aerodynamics
 date: 2024-12-20 13:03:20 +0000
-tags: [christbro,bible,salvation,job,offer,ai,openai,chatgpt]     # TAG names should always be lowercase
 ---
 
 Suppose I want to save some [drug addicts](../on-drug-money-addiction){:target="_blank"} with keywords like portfolio, manager and analyst in their job titles from overdosing this bonus season by [sprinkling some extra-potent salt](../on-peanut-butter-jelly-part-1){:target="_blank"} to bring them back to life. I was too lazy to work out the math myself, so I cheated again using ChatGPT and you can find the results below.

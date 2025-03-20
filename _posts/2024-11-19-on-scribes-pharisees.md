@@ -1,7 +1,6 @@
 ---
 title: On Scribes and Pharisees
 date: 2024-11-19 09:11:36 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Often times, I saw more faith in the eyes of common people who make up the congregations than the people who lead them. This is especially bad in Europe. Things are better in the states, and the faith in Asia is incredible. IMHO, European churches are mostly rich on the outside, but faithfully bankrupt on the inside.

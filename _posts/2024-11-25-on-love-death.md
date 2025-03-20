@@ -1,7 +1,6 @@
 ---
 title: On Love and Death
 date: 2024-11-25 06:39:21 +0000
-tags: [christbro,bible,salvation,love]     # TAG names should always be lowercase
 
 ---
 

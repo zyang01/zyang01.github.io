@@ -1,7 +1,6 @@
 ---
 title: On Balloon 🎈
 date: 2024-11-21 06:51:54 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 It feels like the first 27yrs of my life was an inflated balloon. He poked it, it exploded, and everything came out, with me kicking and screaming the whole time.

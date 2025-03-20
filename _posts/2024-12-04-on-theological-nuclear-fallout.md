@@ -1,7 +1,6 @@
 ---
 title: On a Theological Nuclear Fallout
 date: 2024-12-04 11:57:42 +0000
-tags: [christbro,bible,salvation,atheism,theism,rationalism]     # TAG names should always be lowercase
 ---
 
 I dropped the theological nuke yesterday after a friend helped me build it. The detonation was codenamed Trinity for the Theological Manhattan Project. It was dropped on around two dozen people, mostly pastors and theologians I collected over the last 10 weeks and 4 days as a Christian intern. My atheist friend who helped me build it was the first victim and you can find his final moments in the screenshot below.

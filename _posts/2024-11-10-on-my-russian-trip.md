@@ -1,7 +1,6 @@
 ---
 title: On My Russian Trip
 date: 2024-11-10 13:42:39 +0000
-tags: [christbro,bible,salvation,love,devotion,sacrifice,remembrancesunday]     # TAG names should always be lowercase
 ---
 
 It's the last night of my trip to Russia today and I will be travelling back to the U.K. tomorrow. Before my arrival in Moscow, I thought I was here to look into Russian Orthodox Churches and He wanted to show me divisions in the church (1 Corinthians 1:10-17). I asked a former colleague of mine who's British Korean and also a Christian for church recommendations considering the weekend was imminent. He recommended St Andrew's Anglican Church, Moscow and I went to their Remembrance Sunday service today.

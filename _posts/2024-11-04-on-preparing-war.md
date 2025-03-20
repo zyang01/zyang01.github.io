@@ -1,7 +1,6 @@
 ---
 title: On Preparing for War
 date: 2024-11-04 11:49:29 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 He told me to prepare for war when He visited me for the first time back in late August. He told me that one day we will assemble in darkness, and there will be many of them and few of us, but it will be okay. I later worked out that it’s a war against the root of all evil - the love of money, after seeing the evil people are willing to do.

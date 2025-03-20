@@ -1,7 +1,6 @@
 ---
 title: On Wrestling with God
 date: 2024-11-26 +0000
-tags: [christbro,bible,salvation,lol,lmao]     # TAG names should always be lowercase
 ---
 
 Are you for real? Do you even know how to spell God?

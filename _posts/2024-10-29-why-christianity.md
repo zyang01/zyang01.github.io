@@ -1,7 +1,6 @@
 ---
 title: Why Christianity?
 date: 2024-10-29 17:04:37 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Some statistics regarding the world’s top two religions.

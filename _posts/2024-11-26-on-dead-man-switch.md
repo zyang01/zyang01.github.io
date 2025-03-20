@@ -1,7 +1,6 @@
 ---
 title: On Dead Man’s Switch
 date: 2024-11-26 12:54:05 +0000
-tags: [christbro,bible,salvation,death,threat,saudiarabia,china,northkorea]     # TAG names should always be lowercase
 ---
 
 As alluded to in my previous post titled “On Fear”, if I stop meme posting online or my posts suddenly disappear, you know which embassies I may have walked into. 😉

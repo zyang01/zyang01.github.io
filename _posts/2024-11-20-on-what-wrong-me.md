@@ -1,7 +1,6 @@
 ---
 title: On What’s Wrong with Me
 date: 2024-11-20 15:07:52 +0000
-tags: [christbro,bible,salvation,spirituality]     # TAG names should always be lowercase
 ---
 
 Too capable for my own good. 🙄

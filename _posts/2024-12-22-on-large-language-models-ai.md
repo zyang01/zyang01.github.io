@@ -1,7 +1,6 @@
 ---
 title: On Large Language Models and AI
 date: 2024-12-22 08:42:05 +0000
-tags: [christbro,bible,salvation,machinelearning,ai,openai,chatgpt]     # TAG names should always be lowercase
 ---
 
 As alluded to in the launch post of project Bible Says Love ([BibleSays.Love](https://biblesays.love){:target="_blank"}) titled “[On Cheating and Bible Says Love](../on-cheating-bible-says-love){:target="_blank"}”, the project currently relays the incoming requests to OpenAI’s GPT-4o model for processing and returns the response to the user.

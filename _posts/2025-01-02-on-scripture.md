@@ -1,7 +1,6 @@
 ---
 title: On Scripture
 date: 2025-01-02 10:28:02 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I had a major existential crisis for the first time concerning scripture after the strong drink by Thomas earlier this week.

@@ -1,7 +1,6 @@
 ---
 title: On Reformation Party 🎉🎉🎉
 date: 2024-12-18 20:40:01 +0000
-tags: [christbro,bible,salvation,martinluther,reformation,party,invitation]     # TAG names should always be lowercase
 ---
 
 So, I was a bit tired after building the project [Bible Says Love](../on-cheating-bible-says-love){:target="_blank"} ([BibleSays.Love](https://biblesays.love){:target="_blank"}) and sending it out to a bunch of people I care about as an early Christmas present. I took a nap and woke up just now. I needed to reload on some Christian memes after the recent barrage of posts, so I went on Google Images to do that as usual and stumbled across a treasure trove about some German dude named [Martin Luther](https://buymeacoffee.com/aaronyangi/on-my-insanity){:target="_blank"}.

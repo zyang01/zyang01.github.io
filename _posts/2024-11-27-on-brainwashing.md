@@ -1,7 +1,6 @@
 ---
 title: On Brainwashing
 date: 2024-11-27 09:11:17 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 A friend expressed the sentiment that I might have been brainwashed.

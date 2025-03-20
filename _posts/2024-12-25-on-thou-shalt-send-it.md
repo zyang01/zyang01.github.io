@@ -1,7 +1,6 @@
 ---
 title: On Thou Shalt Send It
 date: 2024-12-25 05:09:39 +0000
-tags: [christbro,bible,salvation,email,warning,uranium,tezos]     # TAG names should always be lowercase
 ---
 
 I went to a Christmas Eve service last night and had communion for the first time. I cried.

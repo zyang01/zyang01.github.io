@@ -1,7 +1,6 @@
 ---
 title: Day in the Life as a Christ Bro (God’s Children)
 date: 2024-10-31 10:38:03 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Wake up 4/5 AM naturally and say good morning to Him.

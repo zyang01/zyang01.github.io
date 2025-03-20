@@ -1,7 +1,6 @@
 ---
 title: On Why You Owe Me a Coffee
 date: 2024-11-17 09:20:38 +0000
-tags: [christbro,bible,salvation,revelation,coffee]     # TAG names should always be lowercase
 ---
 
 Since a friend asked.

@@ -1,7 +1,6 @@
 ---
 title: On Suffering
 date: 2024-11-18 22:00:30 +0000
-tags: [christbro,salvation,god]     # TAG names should always be lowercase
 ---
 
 On day 2 of His first visit back in August, He asked me a series of questions through a song called Locked Away by R. City.

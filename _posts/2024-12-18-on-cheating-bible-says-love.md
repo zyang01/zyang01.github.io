@@ -1,7 +1,6 @@
 ---
 title: On Cheating and Bible Says Love
 date: 2024-12-18 12:56:56 +0000
-tags: [christbro,bible,salvation,biblesayslove,armour,love,ai,openai,llm,cloudflare,believer]     # TAG names should always be lowercase
 
 ---
 

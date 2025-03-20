@@ -1,7 +1,6 @@
 ---
 title: On Appearances
 date: 2024-12-01 12:57:16 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 There has been more than one occasion where a brother informed me that dishing out my dirty laundry and nakedness to the world doesn't necessarily make my testimony beautiful to unbelievers.

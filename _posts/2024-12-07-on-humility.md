@@ -1,7 +1,6 @@
 ---
 title: On Humility
 date: 2024-12-07 22:18:24 +0000
-tags: [christbro,bible,salvation,humility,reverence]     # TAG names should always be lowercase
 ---
 
 When was the last time you humbled yourself and sincerely admitted your wrongdoing? I did that this morning after realising my hypocrisy and confessed it to my Father and the world.

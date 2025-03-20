@@ -1,7 +1,6 @@
 ---
 title: On Misrepresenting the Lord
 date: 2024-12-01 08:31:11 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 
 ---
 

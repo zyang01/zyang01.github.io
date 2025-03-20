@@ -1,7 +1,6 @@
 ---
 title: On Anger and Faith
 date: 2024-11-14 14:27:36 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I was absolutely fuming last night after realising how adulterous and unfaithful the world has become. I got so mad that I sent a ton of rather profane messages to a couple of my current friends and the former friend calling everyone a bunch of names that imply sexual immorality and promiscuity. I sincerely apologise to everyone as well as to my boss. I will continue to pray for Him to take my wrath away and hope that everyone could forgive my transgression last night. 🙏

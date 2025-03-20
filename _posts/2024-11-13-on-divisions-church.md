@@ -1,7 +1,6 @@
 ---
 title: On Divisions in the Church
 date: 2024-11-13 09:23:30 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I believe He would like me study the various denominations based on my encounters with Christians throughout my recent travel. I believe some denominations might have been mistaken and deviated from the teachings in scripture. Currently I have JW and LDS to look into. It's important to emphasis that being on my list simply means I would like to know more about what they stand for in terms of teachings and principles. It does not automatically mean I think they are wrong or mistaken.

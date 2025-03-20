@@ -1,7 +1,6 @@
 ---
 title: On Criticism and Humiliation
 date: 2024-12-08 08:49:45 +0000
-tags: [christbro,bible,salvation,criticism,humiliation]     # TAG names should always be lowercase
 ---
 
 As alluded to in my previous post titled “On Shame”, I'm quite shameless nowadays and don’t mind being humiliated by anyone including modest scholars and academics as an amateur WhatsApp philosopher. For the first 27 years of my life, I was an extremely reserved guy and you wouldn't be able to find more than a handful of photos of me on the internet, let alone my opinions or what I think. I'm an INTJ-A btw if you're into MBTI.

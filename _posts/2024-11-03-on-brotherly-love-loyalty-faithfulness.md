@@ -1,7 +1,6 @@
 ---
 title: On Brotherly Love, Loyalty and Faithfulness
 date: 2024-11-03 05:10:46 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 When I went to my first Sunday church service, a member of the congregation mentioned that my English first name Aaron is also very biblical. I then read the story of Aaron and his younger brother Moses. I cried after reading the friendship between them, because they reminded me of my relationship with my younger brother. My younger brother just started his first year at Queen Mary reading economics, but is forced to take another gap year due to my inability to financially support him in light of recent events.

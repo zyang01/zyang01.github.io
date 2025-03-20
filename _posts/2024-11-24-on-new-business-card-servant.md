@@ -1,7 +1,6 @@
 ---
 title: On New Business Card as a Servant
 date: 2024-11-24 19:29:33 +0000
-tags: [christbro,bible,salvation,businesscard]     # TAG names should always be lowercase
 ---
 
 Hope you like the new design, but be extremely careful when sharing with an unbeliever, and should only do so under strict supervision. Please contact the local church pastor for severe side effects including but not limited to doubting reality and their existence. 🙏🫶😘

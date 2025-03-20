@@ -1,7 +1,6 @@
 ---
 title: On What I Want
 date: 2025-01-20 22:30:00 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I emailed a British Member of Parliament earlier this evening after learning about his commitment to the community through his introductory letter. Despite the similar experiences in space but decades apart in time, I put together an email that would hopefully cause sufficient intellectual intrigue for a fellow Oxford graduate.

@@ -1,7 +1,6 @@
 ---
 title: On Going Home
 date: 2025-01-14 9:01:00 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I arrived in Tel Aviv earlier this morning. As usual, I was invited to have a one-to-one conversation with a border officer in a well-decorated room. They were curious about why I chose to visit Israel. They also informed me that there had been a missile delivery from some not-so-friendly neighbours as recently as the previous evening.

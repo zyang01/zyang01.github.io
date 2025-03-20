@@ -1,7 +1,6 @@
 ---
 title: On Mental Illness
 date: 2024-12-03 23:37:30 +0000
-tags: [christbro,bible,salvation,psychology,mentalhealth]     # TAG names should always be lowercase
 ---
 
 A friend suggested I’m mentally ill again today without reading through all my posts. Dude, I have literally one ask in my profile, read all my fucking posts before opening your mouth or giving me advice. Also, I need an actual help hand, not another fucking advice. Talk is cheap folks, talk is cheap.

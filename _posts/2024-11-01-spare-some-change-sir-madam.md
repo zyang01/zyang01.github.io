@@ -1,7 +1,6 @@
 ---
 title: Spare Some Change, Sir/Madam?
 date: 2024-11-01 21:53:02 +0000
-tags: [coffee]     # TAG names should always be lowercase
 ---
 
 If you would like to support a random dude on the internet who calls himself a Christ bro and is probably schizophrenic according to modern psychological standards, then you could do so at the link below.

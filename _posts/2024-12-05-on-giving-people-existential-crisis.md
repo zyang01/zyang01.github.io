@@ -1,7 +1,6 @@
 ---
 title: On Giving People an Existential Crisis
 date: 2024-12-05 04:45:50 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I believe the following steps/questions can take away reason from underneath unbelievers’ feet. You can then watch their entire house collapse, and it will be a spectacular sight.

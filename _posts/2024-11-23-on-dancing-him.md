@@ -1,7 +1,6 @@
 ---
 title: On Dancing with Him
 date: 2024-11-23 09:37:29 +0000
-tags: [christbro,bible,salvation,dance]     # TAG names should always be lowercase
 ---
 
 Instead of running in front of my Boss and falling over every time, I’m trying to be more patient and learning to dance with Him in a pas de deux.

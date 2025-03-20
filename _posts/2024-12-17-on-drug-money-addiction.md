@@ -1,7 +1,6 @@
 ---
 title: On Drug (Money) Addiction
 date: 2024-12-17 07:35:40 +0000
-tags: [christbro,bible,salvation,money,capitalism,drug,addiction,substance,abuse]     # TAG names should always be lowercase
 ---
 
 If you look up the [symptoms of drug addiction or substance abuse](https://my.clevelandclinic.org/health/diseases/16652-drug-addiction-substance-use-disorder-sud){:target="_blank"} online and replace the drug names with money, my guess is you would probably find it amusingly fitting.

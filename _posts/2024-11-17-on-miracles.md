@@ -1,7 +1,6 @@
 ---
 title: On Miracles
 date: 2024-11-17 14:22:51 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 So, according to Google, there are 2.38 billion Christians in the world, out of a global population of 8 billion.

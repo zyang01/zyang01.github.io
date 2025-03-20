@@ -1,7 +1,6 @@
 ---
 title: On My Parents
 date: 2024-11-30 02:41:28 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 It’s a bit weird. Even at the lowest point of my life, being bankrupt, unemployed and would appreciate a little bit of love and care, they couldn't seem to be satisfied by my testimony and the fact that I'm worry-free and content like a five-year-old every day because of the love and care He’s giving me.

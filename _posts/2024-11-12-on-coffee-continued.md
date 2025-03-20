@@ -1,7 +1,6 @@
 ---
 title: On Coffee (Continued)
 date: 2024-11-12 10:48:08 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 After the recent heavy posts, time to get back to some shameless begging and cash in whatever little sympathy I may have earned in people's hearts. 😬

@@ -1,7 +1,6 @@
 ---
 title: On the Coldness of Heart
 date: 2024-11-20 12:25:02 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Over the last eight and a half weeks as a believer, I had this irresistible urge to shove mankind’s best seller to everyone I know, including friends, family and old colleagues.

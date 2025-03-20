@@ -1,7 +1,6 @@
 ---
 title: On Rationalism
 date: 2024-11-19 20:00:09 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 It’s funny how some people just by default refer me to mental health services without looking at the objective facts and data that I’m laying out in front of them.

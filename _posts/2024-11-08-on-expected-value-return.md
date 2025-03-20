@@ -1,7 +1,6 @@
 ---
 title: On Expected Value/Return
 date: 2024-11-08 10:29:31 +0000
-tags: [christbro,salvation,probability,bible,secondcoming,mathematics]     # TAG names should always be lowercase
 ---
 
 If you’re not a crypto/finance/tech/maths bro, or it’s been a while since your last lecture on probability 101, here’s some prerequisite reading on expected value/return.

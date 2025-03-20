@@ -1,7 +1,6 @@
 ---
 title: On the Middle East
 date: 2024-12-20 22:38:29 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 Reading my origin story on real-life-fantasy(dot)com and my early posts will provide the context for this post.

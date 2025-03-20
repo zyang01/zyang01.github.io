@@ -1,7 +1,6 @@
 ---
 title: On Faith and Doubt
 date: 2024-11-22 12:41:40 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 He practically removed doubts in my mind to a degree that I can either have faith or I can have doubt, but I can't have both at the same time. The more I think, the more I seem to doubt, and the less faith I have, but He does always provide reassurance wherever and whenever I need it. My Father is super thoughtful. 🥹🤩😘

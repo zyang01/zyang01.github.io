@@ -1,7 +1,6 @@
 ---
 title: To Unbelievers
 date: 2024-11-25 10:27:25 +0000
-tags: [god,jesus,christ,jesuschrist,love,faith,hope,christbro,bible,salvation,reason,curiosity]     # TAG names should always be lowercase
 ---
 
 May I ask what exactly is your problem with a world without tears, war, strife, pain and death?

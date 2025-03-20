@@ -1,7 +1,6 @@
 ---
 title: On Narcissism and Saviour Complex
 date: 2024-11-06 07:03:13 +0000
-tags: [christbro,narcissism,saviourcomplex,salvation]     # TAG names should always be lowercase
 ---
 
 I couldn’t think of a better way to summarise narcissism than being accused of pride when all that I want is to offer salvation to their soul. I believe I’m saved already through faith, and I could’ve just sat around watching Netflix waiting for Him to come back. I don’t get paid doing this. 🤷

@@ -1,7 +1,6 @@
 ---
 title: On My Purpose
 date: 2024-11-18 08:42:23 +0000
-tags: [christbro,salvation,judgementday]     # TAG names should always be lowercase
 ---
 
 This is confirmed by the Holy Spirit (brain massage level of strength 🤤) when I was smoking outside of a Vietnamese restaurant in California. I was having a smoking break half way through having Pho with my aunt, who’s been a believer for 12 years.

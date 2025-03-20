@@ -1,7 +1,6 @@
 ---
 title: On Miracles for Unbelievers
 date: 2025-01-04 19:15:48 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 If you are an unbeliever and would like to see some proof before you decide whether God exists, then I suggest you find out what signs/wonders/miracles Jesus said He was going to give to an adulterous/unfaithful generation when they ask for one.

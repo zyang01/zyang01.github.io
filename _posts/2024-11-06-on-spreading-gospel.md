@@ -1,7 +1,6 @@
 ---
 title: On Spreading the Gospel
 date: 2024-11-06 09:14:33 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Matthew 7:6

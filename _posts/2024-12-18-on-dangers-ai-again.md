@@ -1,7 +1,6 @@
 ---
 title: On the Dangers of AI (Again) 🚨🚨🚨
 date: 2024-12-18 11:48:20 +0000
-tags: [christbro,bible,salvation,ai,danger]     # TAG names should always be lowercase
 ---
 
 You can watch the discussion on AI that took place in the gigantic fig tree in Rome, Italy via [this link](https://www.youtube.com/watch?v=jGgOsUWbo0k){:target="_blank"} on YouTube.

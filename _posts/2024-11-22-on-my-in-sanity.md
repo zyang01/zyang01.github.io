@@ -1,7 +1,6 @@
 ---
 title: On My (In)Sanity
 date: 2024-11-22 07:59:15 +0000
-tags: [christbro,bible,salvation,sanity,insanity,crazy,psychology]     # TAG names should always be lowercase
 ---
 
 My date of birth is 8 Nov 1996, in case you wanna call/email Drug Test London to verify the drug test result in my previous post titled “On Drugs”.

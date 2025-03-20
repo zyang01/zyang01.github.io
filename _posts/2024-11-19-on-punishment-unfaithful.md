@@ -1,7 +1,6 @@
 ---
 title: On the Punishment for the Unfaithful
 date: 2024-11-19 10:40:16 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Hosea 4:1-2

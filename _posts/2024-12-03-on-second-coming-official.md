@@ -1,7 +1,6 @@
 ---
 title: On Second Coming (Official)
 date: 2024-12-03 21:36:13 +0000
-tags: [christbro,bible,salvation,secondcoming,payback,repentance,jesus,christ,jesuschrist,christianity]     # TAG names should always be lowercase
 ---
 
 Dude’s been nagging me to go apeshit for days, literally right after He taught me to be patient. 🙄🙄🙄

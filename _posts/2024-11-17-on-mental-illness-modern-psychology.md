@@ -1,7 +1,6 @@
 ---
 title: On Mental Illness and Modern Psychology
 date: 2024-11-17 08:11:38 +0000
-tags: [christbro,bible,salvation,psychology,mentalhealth]     # TAG names should always be lowercase
 ---
 
 When I was still exploring my faith (100% God but 95% Jesus Christ as my Lord and Saviour), I found discussions online speculating that the apostles and the various characters in the bible were potentially schizophrenic or had other severe types of mental illness according to modern psychology. My mental health was/is also questioned by almost everyone whose not a believer in my life.

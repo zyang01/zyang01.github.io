@@ -1,7 +1,6 @@
 ---
 title: On His Love and Care
 date: 2024-11-30 05:09:25 +0000
-tags: [christbro,bible,salvation,parenting,love]     # TAG names should always be lowercase
 ---
 
 It took about three hours from my mom calling me a failure and a disappointment to Him making me laugh thinking about meeting the legendary noisy gong on the day I get to heaven.

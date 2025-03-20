@@ -1,7 +1,6 @@
 ---
 title: On Peanut Butter Jelly (Part 1)
 date: 2024-11-29 18:21:13 +0000
-tags: [christbro,bible,salvation,gospel,testimony]     # TAG names should always be lowercase
 ---
 
 The King of whacky ideas and the King of Drama told me to spread it like peanut butter jelly. So please allow me to introduce project Peanut Butter Jelly, Part 1.

@@ -1,7 +1,6 @@
 ---
 title: On Mistake
 date: 2025-01-08 02:33:31 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 If you saw my NSFW New Year present to the world, my guess is your jaw probably dropped. If you think I'm an exhibitionist in the sexual context, then all I can say is you won't be able to find more than a handful of photos of me on the internet before this journey.

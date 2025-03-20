@@ -1,7 +1,6 @@
 ---
 title: On Feedback
 date: 2024-11-21 06:28:15 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 There were a lot of times in the last couple months I felt like I was drowning in this world, because no matter how loud I scream, and how much I write, I rarely get any feedback from people, especially from people I know in real life.

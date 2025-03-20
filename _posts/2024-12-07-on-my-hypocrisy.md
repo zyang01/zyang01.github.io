@@ -1,7 +1,6 @@
 ---
 title: On My Hypocrisy
 date: 2024-12-07 09:10:02 +0000
-tags: [christbro,bible,salvation,wealth]     # TAG names should always be lowercase
 ---
 
 I was looking for my KCL student ID this morning hoping to visit Dr Modest next week and see if we could have a modest discussion regarding the simulation hypothesis because epistemologically it’s not possible for humans to tell whether we are living in a simulation.

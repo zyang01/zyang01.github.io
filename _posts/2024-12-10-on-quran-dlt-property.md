@@ -1,7 +1,6 @@
 ---
 title: On the Quran’s DLT Property
 date: 2024-12-10 12:34:00 +0000
-tags: [christbro,bible,salvation,christianity,islam,quran,dlt,blockchain,crypto,sharding,faith,memory]     # TAG names should always be lowercase
 ---
 
 During the early phase of exploring my faith and back when I could still afford Uber, I had discussions about God with at least half of the Uber drivers I encountered.

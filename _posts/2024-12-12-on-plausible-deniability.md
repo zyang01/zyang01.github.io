@@ -1,7 +1,6 @@
 ---
 title: On Plausible Deniability
 date: 2024-12-12 06:52:22 +0000
-tags: [christbro,bible,salvation,balloon,dji]     # TAG names should always be lowercase
 ---
 
 Do you like the new design? The new batch arrived yesterday and gonna shove them to a bunch of Baptist churches pulled off the GCP Places API. Gonna order 10,000 more after I sell some stuff.

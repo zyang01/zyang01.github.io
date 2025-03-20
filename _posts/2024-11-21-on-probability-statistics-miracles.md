@@ -1,7 +1,6 @@
 ---
 title: On Probability, Statistics and Miracles
 date: 2024-11-21 09:35:03 +0000
-tags: [christbro,bible,salvation,probability,statistics,miracle]     # TAG names should always be lowercase
 ---
 
 Both got thrown in the trash bin ever since I invited Him to take up permanent residence in my life, after Romans 1-4 called me a sinner in my face. 🫠🙄😔

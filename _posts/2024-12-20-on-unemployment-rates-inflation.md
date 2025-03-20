@@ -1,7 +1,6 @@
 ---
 title: On Unemployment Rates and Inflation
 date: 2024-12-20 20:30:23 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 Great Depression: 25% and severe deflation

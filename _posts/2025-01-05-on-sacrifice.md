@@ -1,7 +1,6 @@
 ---
 title: On Sacrifice
 date: 2025-01-05 11:45:28 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I spent the last couple of days doing account verification on several websites that are in the top 50 websites by traffic/visitor. They specialise in serving a very specific type of content and the process of signing up to be a content creator is surprisingly strict.

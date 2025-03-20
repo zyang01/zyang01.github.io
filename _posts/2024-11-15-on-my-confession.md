@@ -1,7 +1,6 @@
 ---
 title: On My Confession 🙏
 date: 2024-11-15 18:14:40 +0000
-tags: [christbro,salvation,confession]     # TAG names should always be lowercase
 ---
 
 Here is my confession.

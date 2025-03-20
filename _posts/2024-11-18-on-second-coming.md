@@ -1,7 +1,6 @@
 ---
 title: On Second Coming
 date: 2024-11-18 10:57:40 +0000
-tags: [christbro,salvation,secondcoming]     # TAG names should always be lowercase
 ---
 
 Hello.

@@ -1,7 +1,6 @@
 ---
 title: On Being Insane
 date: 2024-12-01 13:52:58 +0000
-tags: [christbro,bible,salvation,preaching,insanity]     # TAG names should always be lowercase
 ---
 
 In case you haven't figured that out yourself through reading my posts, I have confirmation from my Boss and He told me I'm so insane. He also told me to shut up and just enjoy this feelin’.

@@ -1,7 +1,6 @@
 ---
 title: On the King of Rap and King of Swearin’
 date: 2024-12-01 20:11:42 +0000
-tags: [king,christbro,salvation,rap]     # TAG names should always be lowercase
 ---
 
 Feelin’ it listening to “Lighters” Song by Bad Meets Evil and Bruno Mars. Partial lyrics below.

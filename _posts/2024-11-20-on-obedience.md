@@ -1,7 +1,6 @@
 ---
 title: On Obedience
 date: 2024-11-20 07:24:52 +0000
-tags: [christbro,bible,salvation,programming,python,functionalprogramming]     # TAG names should always be lowercase
 ---
 
 Consider the following python program.

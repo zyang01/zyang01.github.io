@@ -1,7 +1,6 @@
 ---
 title: On My Faith and My Homosexuality
 date: 2024-10-29 08:31:23 +0000
-tags: [christbro,lgbt,salvation]     # TAG names should always be lowercase
 ---
 
 Just some random thoughts on this topic and might extend on it later as I read more scripture.

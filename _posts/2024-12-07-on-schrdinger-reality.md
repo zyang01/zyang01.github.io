@@ -1,7 +1,6 @@
 ---
 title: On Schrödinger’s Reality
 date: 2024-12-07 16:28:09 +0000
-tags: [christbro,bible,salvation,physics,quantummechanics,duality,superposition]     # TAG names should always be lowercase
 ---
 
 I'm pretty sure Prof Schrödinger is busy enough with all his dunno-if-dead-or-alive cats already, could we just leave the man alone to contemplate his mistakes on atheism?

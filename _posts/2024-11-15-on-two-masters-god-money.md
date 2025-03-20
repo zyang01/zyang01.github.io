@@ -1,7 +1,6 @@
 ---
 title: On Two Masters (God or Money)
 date: 2024-11-15 12:53:29 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I would strongly advise everyone to contemplate which master they serve, either right now, tonight or this weekend.

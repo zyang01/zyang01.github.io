@@ -1,7 +1,6 @@
 ---
 title: On Subsequent Encounters
 date: 2024-11-16 06:48:57 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 There were two more after the first one in late August.

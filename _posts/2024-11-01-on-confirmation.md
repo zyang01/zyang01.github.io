@@ -1,7 +1,6 @@
 ---
 title: On Confirmation
 date: 2024-11-01 08:46:04 +0000
-tags: [christbro,calling,salvation]     # TAG names should always be lowercase
 ---
 
 I had a conditional offer to study Computer Science at Keble College, Oxford back in 2015, but missed it and got into King’s College London instead to study Mathematics and Computer Science through UCAS Clearing. I reapplied to Balliol College, Oxford the subsequent year, and received an open offer from Keble College, Oxford again.

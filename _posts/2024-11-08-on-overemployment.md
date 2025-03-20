@@ -1,7 +1,6 @@
 ---
 title: On Overemployment
 date: 2024-11-08 07:01:09 +0000
-tags: [christbro,salvation,capitalism,overemployment]     # TAG names should always be lowercase
 ---
 
 Was kinda fun when I did 3/4 remote full time software engineer jobs whilst travelling. I have three sets of AirPods and developed the ability to join two stand ups at the same time. Kinda tiring to do 4/5hrs of meetings before noon tho and not massively motivated to write any code after lunch most days. 🥲

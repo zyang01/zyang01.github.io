@@ -1,7 +1,6 @@
 ---
 title: On Solution to All Our Problems
 date: 2024-11-26 07:51:53 +0000
-tags: [christbro,salvation,world,donaldtrump,trump,elonmusk,ai,samaltman,xijinping,putin,eu,uk,china]     # TAG names should always be lowercase
 ---
 
 Only God can help us now.

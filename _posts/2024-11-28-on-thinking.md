@@ -1,7 +1,6 @@
 ---
 title: On Thinking
 date: 2024-11-28 09:28:49 +0000
-tags: [god,jesus,jesuschrist,holyspirit,christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 All the thinking I have done in the first 27 years of my life resulted in a gigantic fire as shown in my previous post titled “On My Mess”.

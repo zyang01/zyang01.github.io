@@ -1,7 +1,6 @@
 ---
 title: On My Language
 date: 2025-01-22 09:03:00 +0000
-tags: [christbro,bible,salvation,psychology,horror,evil]     # TAG names should always be lowercase
 
 ---
 

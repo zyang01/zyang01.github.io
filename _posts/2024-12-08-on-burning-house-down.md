@@ -1,7 +1,6 @@
 ---
 title: On Burning the House Down
 date: 2024-12-08 19:47:06 +0000
-tags: [christbro,bible,salvation,fire,arson,capitalism,money]     # TAG names should always be lowercase
 ---
 
 Burn the House Down - Song by AJR

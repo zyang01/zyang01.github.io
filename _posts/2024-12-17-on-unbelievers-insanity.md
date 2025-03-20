@@ -1,7 +1,6 @@
 ---
 title: On Unbelievers’ Insanity
 date: 2024-12-17 06:30:20 +0000
-tags: [christbro,bible,salvation,insanity,hell]     # TAG names should always be lowercase
 ---
 
 As alluded to in my previous posts, [I'm basically insane](../on-my-sanity){:target="_blank"}.

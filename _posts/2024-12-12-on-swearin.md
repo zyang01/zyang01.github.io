@@ -1,7 +1,6 @@
 ---
 title: On Swearin’
 date: 2024-12-12 09:28:49 +0000
-tags: [christbro,bible,salvation,rebellion,secondcoming]     # TAG names should always be lowercase
 ---
 
 I did a lot of kicking, shouting and screaming in my posts because I was extremely angry when I wrote them. Some of them contained a lot of f-bombs and a lot of people advised me to change the wording, but I refused. I think this world and a lot of people need some f-bombs to wake the fuck up before it's too late.

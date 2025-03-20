@@ -1,7 +1,6 @@
 ---
 title: On Disbelief
 date: 2024-12-07 11:35:24 +0000
-tags: [christbro,bible,salvation,belief]     # TAG names should always be lowercase
 ---
 
 It appears that a lot of atheists/rationalists don't seem to realise disbelief is a belief in itself, and their belief in disbelief is so strong that they don't even see that they have become a belief paradox in that the disbelief is making them question the reality where they learned the language and reasoning ability to construct the disbelief in the first place. Hence forming a self-contradiction.

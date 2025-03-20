@@ -1,7 +1,6 @@
 ---
 title: On Giving Up on Convincing
 date: 2024-11-13 10:24:20 +0000
-tags: [christbro,bible,salvation,faith,believer]     # TAG names should always be lowercase
 ---
 
 Now that I have more or less let all of my steam out and decided to shake the dust off my feet, I pray to the Lord that I will do less shouting and yelling going forward and feel less impulsive to convince stubborn non believers.

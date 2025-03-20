@@ -1,7 +1,6 @@
 ---
 title: On Seeking Wisdom and Knowledge
 date: 2024-11-24 13:52:18 +0000
-tags: [christbro,bible,salvation,knowledge,wisdom,fools,idiots]     # TAG names should always be lowercase
 ---
 
 It seems the folks in ivory towers nowadays like to boast about the knowledge and wisdom they believe they have.

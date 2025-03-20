@@ -1,7 +1,6 @@
 ---
 title: On the Holy Spirit
 date: 2024-11-18 06:32:48 +0000
-tags: [christbro,bible,salvation,love,faith,hope]     # TAG names should always be lowercase
 ---
 
 I asked one of my guides, the Christian missionary in mainland China, how does the Holy Spirit manifest Himself to believers.

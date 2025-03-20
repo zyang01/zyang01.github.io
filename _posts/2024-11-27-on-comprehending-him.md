@@ -1,7 +1,6 @@
 ---
 title: On Comprehending Him
 date: 2024-11-27 15:18:13 +0000
-tags: [christbro,bible,salvation,science,physics,chemistry,biology,engineering,philosophy,god]     # TAG names should always be lowercase
 ---
 
 You know how in natural sciences you need an instrument to measure or dissect the object you are trying to study and understand? That instrument often needs to be more precise than the object that you are measuring or dissecting.

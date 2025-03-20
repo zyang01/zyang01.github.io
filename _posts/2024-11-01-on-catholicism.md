@@ -1,7 +1,6 @@
 ---
 title: On Catholicism
 date: 2024-11-01 20:47:29 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 🚨🚨🚨Trigger Warning🚨🚨🚨: This post will offend catholics.

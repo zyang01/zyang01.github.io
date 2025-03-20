@@ -1,7 +1,6 @@
 ---
 title: On Righteousness
 date: 2024-11-01 10:30:22 +0000
-tags: [christbro,bible,salvation,secondcoming]     # TAG names should always be lowercase
 ---
 
 Why did I go all-in Jesus Christ as my Lord and Saviour after reading Romans 1-4?

@@ -1,7 +1,6 @@
 ---
 title: On Silence
 date: 2024-11-29 09:57:49 +0000
-tags: [christbro,bible,salvation,linkedin,coffee]     # TAG names should always be lowercase
 ---
 
 Hey internet, your silence is deafening.

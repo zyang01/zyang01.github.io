@@ -1,7 +1,6 @@
 ---
 title: On Walking on Water
 date: 2024-11-17 20:04:27 +0000
-tags: [christbro,bible,salvation,faith,reality]     # TAG names should always be lowercase
 ---
 
 If you took the time to contemplate on the topics mentioned in my previous post titled “On Scientific Materialism”, then you should be experiencing an existential crisis of sorts and wondering what can you know for certain to be real other than the fact that you are thinking and therefore you know you exist.

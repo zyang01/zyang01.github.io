@@ -1,7 +1,6 @@
 ---
 title: On Submission
 date: 2024-11-12 15:34:12 +0000
-tags: [christbro,bible,salvation,revelation]     # TAG names should always be lowercase
 ---
 
 Before I came up with the theory regarding the mark of the beast in the book of revelation, as discussed in a previous post titled “On the Mark of the Beast”, I was terrified of the idea that what if I’m not on the good side considering the difference on the number of people who get saved at the end times compared to the number of Christians we have in the world.

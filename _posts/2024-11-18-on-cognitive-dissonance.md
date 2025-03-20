@@ -1,7 +1,6 @@
 ---
 title: On Cognitive Dissonance
 date: 2024-11-18 09:25:41 +0000
-tags: [christbro,salvation,psychology,cognitivedissonance]     # TAG names should always be lowercase
 ---
 
 A quick reminder of what cognitive dissonance is via a quote from Wikipedia, since a friend wasn’t sure. 😉

@@ -1,7 +1,6 @@
 ---
 title: On Childhood
 date: 2024-11-30 03:12:10 +0000
-tags: [christbro,bible,salvation,parenting,childhood]     # TAG names should always be lowercase
 ---
 
 This is largely from memory. I have heard the theory that we tend to remember bad things than good things in psychology, so take this with a grain of salt, no pun intended.

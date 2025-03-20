@@ -1,7 +1,6 @@
 ---
 title: On Rosebay Naturist Camping
 date: 2024-11-12 05:20:53 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 In hindsight, I realised this is what truly happened at the campsite. One thing that I found rather shocking was how everyone was extremely nice in front of each other, but secretly hate each other to the guts and the amount of gossip that goes around was insane.

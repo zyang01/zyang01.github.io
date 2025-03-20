@@ -1,7 +1,6 @@
 ---
 title: On the Noisy Gong
 date: 2024-11-30 04:39:41 +0000
-tags: [christbro,bible,salvation,love,noisygong,apostlepaul,heaven]     # TAG names should always be lowercase
 ---
 
 Just realised I can't wait to meet Paul the Apostle, a.k.a. the noisy gong, the day I get to heaven. 🤣🤣🤣

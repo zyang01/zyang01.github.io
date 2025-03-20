@@ -1,7 +1,6 @@
 ---
 title: On the Dangers of AI 🚨🚨🚨
 date: 2024-11-02 06:54:11 +0000
-tags: [christbro,bible,church]     # TAG names should always be lowercase
 ---
 
 I noticed something that’s probably a legacy of the COVID pandemic - almost every church livestreams their services now. I have also noticed that I’m usually one of a handful of people in the congregation who carries a physical bible with them (normally I carry 3 in my backpack, but over half a dozen if I’m crossing any national border).

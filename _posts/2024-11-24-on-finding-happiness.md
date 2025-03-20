@@ -1,7 +1,6 @@
 ---
 title: On Finding Happiness
 date: 2024-11-24 12:42:41 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I increasingly find it ironic and amusing that the world believes more money brings more happiness and everyone keeps chasing after money every day.

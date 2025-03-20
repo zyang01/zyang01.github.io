@@ -1,7 +1,6 @@
 ---
 title: On Intellectualism
 date: 2024-11-09 10:45:33 +0000
-tags: [christbro,bible,salvation,newatheism]     # TAG names should always be lowercase
 ---
 
 I tried to rewatch the four horsemen of new atheism videos on YouTube after my conversion. I used to agree with their scientific materialistic view on the world, but I had to pause the video every five minutes this time around, because I wanted to slap them in the face so that they would wake the hell up. I ended up slapping myself a couple of times and couldn't bear watching their ego and pride after about half an hour into the discussion.

@@ -1,7 +1,6 @@
 ---
 title: On Self Care (Again)
 date: 2024-11-19 21:40:33 +0000
-tags: [christbro,bible,salvation,love,god]     # TAG names should always be lowercase
 ---
 
 Stop fucking loving yourself! Love the Lord your God and love your neighbours as yourself.

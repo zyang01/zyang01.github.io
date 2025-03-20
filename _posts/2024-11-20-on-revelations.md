@@ -1,7 +1,6 @@
 ---
 title: On Revelations
 date: 2024-11-20 06:15:03 +0000
-tags: [christbro,bible,salvation,revelation]     # TAG names should always be lowercase
 ---
 
 Had a discussion with a fellow Oxford alumnus last night regarding this topic. He saw my memes on LinkedIn and reached out. Turns out his grandma is also a believer and he’s on a quest to prove God’s existence by identifying statistical anomalies. He asked me specifically about my experience during the first visit back in late August concerning the auditory aspects through music I collected over the last 9 years or so on Spotify. I won’t repeat them here and you can read more on my previous post titled “On the Holy Spirit and Miracles”.

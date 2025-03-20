@@ -1,7 +1,6 @@
 ---
 title: On a Theological Nuke
 date: 2024-12-03 11:13:56 +0000
-tags: [christbro,salvation,theology]     # TAG names should always be lowercase
 ---
 
 I believe a friend of mine just helped me build a theological nuclear bomb.

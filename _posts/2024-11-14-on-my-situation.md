@@ -1,7 +1,6 @@
 ---
 title: On My Situation
 date: 2024-11-14 17:01:07 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 Christian intern for 7 weeks and 4 days.

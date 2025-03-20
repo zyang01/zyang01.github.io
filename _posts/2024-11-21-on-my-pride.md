@@ -1,7 +1,6 @@
 ---
 title: On My Pride
 date: 2024-11-21 21:19:59 +0000
-tags: [christbro,salvation,pride,eminem]     # TAG names should always be lowercase
 ---
 
 If you asked me what my thoughts were on religion prior to September 2024, I would have told you that I consider religion to be a collective hallucination of sorts, and a byproduct of evolution that brings about social benefits via community and companionships. The holy book is probably a collection of stories written by some really wise folks and some smart people in history did some overthinking and therefore we have the various religious institutions.

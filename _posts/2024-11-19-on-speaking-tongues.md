@@ -1,7 +1,6 @@
 ---
 title: On Speaking in Tongues
 date: 2024-11-19 07:57:05 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 I attended the evening gathering for 20s and 30s at IGC Burnt Oak last Wednesday. There were five of us and one of the attendees spoke in tongues half way through. It was the second time in my eight weeks as a believer and it was a personal message for me.

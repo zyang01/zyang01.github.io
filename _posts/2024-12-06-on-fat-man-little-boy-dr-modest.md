@@ -1,7 +1,6 @@
 ---
 title: On Fat Man, Little Boy and Dr Modest
 date: 2024-12-06 16:01:56 +0000
-tags: [christbro,bible,salvation,modesty]     # TAG names should always be lowercase
 ---
 
 After the successful theological nuclear detonation on Tuesday codenamed Trinity, part of the Theological Manhattan Project, two nuclear bombs codenamed Little Boy and Fat Man were dropped on 65 theologians and 587 philosophers/mathematicians/physicists from Oxford, Cambridge, and KCL. Their email addresses were scraped using some Python scripts from the respective department websites.

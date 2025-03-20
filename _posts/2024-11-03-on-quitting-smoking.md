@@ -1,7 +1,6 @@
 ---
 title: On Quitting Smoking
 date: 2024-11-03 09:25:14 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 When He visited me back in late August, He told me to quit smoking on day 2. I remained rebellious and did not obey His wishes.

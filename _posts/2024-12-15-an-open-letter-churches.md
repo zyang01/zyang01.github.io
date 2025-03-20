@@ -1,7 +1,6 @@
 ---
 title: An Open Letter to Churches
 date: 2024-12-15 09:25:37 +0000
-tags: [christbro,bible,salvation,balloon,church]     # TAG names should always be lowercase
 ---
 
 I'm done [playing games with pastors](../on-scribes-pharisees){:target="_blank"}. As mentioned in my previous posts, I’m a [massive poker degen](../playing-poker-god) and I can smell your faithfulness without you uttering a single word from our conversations.

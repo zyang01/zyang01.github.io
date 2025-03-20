@@ -1,7 +1,6 @@
 ---
 title: On IPFS, China and North Korea
 date: 2024-11-24 20:30:51 +0000
-tags: [christbro,bible,salvation,ipfs,crypto,china,northkorea,gospel]     # TAG names should always be lowercase
 ---
 
 Let me know if you or someone you know is interested in working with IPFS (InterPlanetary File System). Have a use case in mind for mainland China and North Korea. 😉🫣😱

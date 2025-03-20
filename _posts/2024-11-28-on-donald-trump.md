@@ -1,7 +1,6 @@
 ---
 title: On Donald Trump
 date: 2024-11-28 15:39:40 +0000
-tags: [christbro,bible,salvation,donaldtrump,trump]     # TAG names should always be lowercase
 ---
 
 Is it lest we forget, or is it lest we remember? 🤔

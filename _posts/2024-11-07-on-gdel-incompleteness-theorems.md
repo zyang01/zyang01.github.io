@@ -1,7 +1,6 @@
 ---
 title: On Gödel’s Incompleteness Theorems
 date: 2024-11-07 20:21:25 +0000
-tags: [christbro,bible,mathematics,philosophy,philosophyofmathematics,existentialism,nihilism,salvation]     # TAG names should always be lowercase
 ---
 
 Haven’t got around to working out the details yet, but feel free to take a crack at it if philosophy of mathematics is your thing.

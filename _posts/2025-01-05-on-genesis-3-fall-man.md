@@ -1,7 +1,6 @@
 ---
 title: On Genesis 3 (Fall of Man)
 date: 2025-01-05 18:59:04 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 pin: true
 ---
 

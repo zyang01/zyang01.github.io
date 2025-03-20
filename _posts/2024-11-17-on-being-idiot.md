@@ -1,7 +1,6 @@
 ---
 title: On Being an Idiot
 date: 2024-11-17 05:37:41 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 Before I took the leap of faith, I did ask myself what if I’m wrong and God doesn’t exist and I’m just being a stupid fucking idiot.

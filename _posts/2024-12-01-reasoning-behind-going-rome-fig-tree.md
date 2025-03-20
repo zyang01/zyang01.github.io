@@ -1,7 +1,6 @@
 ---
 title: Reasoning Behind Going to Rome for the Fig Tree
 date: 2024-12-01 04:49:26 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Back when I was in the great US of A during my global tour, I received the instruction to burn down the fig tree via the song “And We Danced” by Macklemore & Ryan Lewis. The instruction was confirmed by the Holy Spirit.

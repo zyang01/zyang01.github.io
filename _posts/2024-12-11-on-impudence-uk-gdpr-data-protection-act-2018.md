@@ -1,7 +1,6 @@
 ---
 title: On Impudence, UK GDPR and Data Protection Act 2018
 date: 2024-12-11 04:42:16 +0000
-tags: [christbro,bible,salvation,preaching,gospel,impudence,gdpr,dpa2018,data,protection,privacy]     # TAG names should always be lowercase
 ---
 
 Due to my actions that lack consideration and respect for my former employer, the two dozen mankind’s best-sellers that I dropped off last month were intercepted and prevented from distributing to the intended recipients. My sincere apologies for my impudence and lack of consideration for my former employer on my end.

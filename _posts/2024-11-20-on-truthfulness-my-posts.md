@@ -1,7 +1,6 @@
 ---
 title: On the Truthfulness in My Posts
 date: 2024-11-20 13:16:51 +0000
-tags: [christbro,bible,salvation,salt,light]     # TAG names should always be lowercase
 ---
 
 A former colleague asked me if the experiences and posts in my LinkedIn profile are true. I told him it’s 1,000% true, but he did help me spot the error I made and the company that I got fired from after submitting 1 PR was BoomFi rather than BlockFi. Thanks mate. 🙏 

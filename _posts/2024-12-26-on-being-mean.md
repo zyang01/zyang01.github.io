@@ -1,7 +1,6 @@
 ---
 title: On Being Mean
 date: 2024-12-26 04:59:03 +0000
-tags: [christbro,bible,salvation,forgiveness,repentance,beef,recipe]     # TAG names should always be lowercase
 ---
 
 Didn’t realise I can be a mean son of a man sometimes. Don’t worry, according to 23andMe, I'm 100% Chinese. However, they did [discipline me with the rod of men by bearing false witness last week](../on-humble-pie){:target="_blank"} and [sent two dozen Holy Bibles to destruction in Belfast](../on-beef){:target="_blank"}.

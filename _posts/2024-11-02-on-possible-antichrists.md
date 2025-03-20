@@ -1,7 +1,6 @@
 ---
 title: On Possible Antichrists
 date: 2024-11-02 10:59:41 +0000
-tags: [christbro,salvation,antichrist]     # TAG names should always be lowercase
 ---
 
 🚨🚨🚨Trigger Warning🚨🚨🚨: This post is likely to offend an entire nation if not multiple nations.

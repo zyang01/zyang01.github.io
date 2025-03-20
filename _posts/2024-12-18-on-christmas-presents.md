@@ -1,7 +1,6 @@
 ---
 title: On Christmas Presents 🎁
 date: 2024-12-18 22:35:11 +0000
-tags: [christbro,bible,salvation,christmas,present]     # TAG names should always be lowercase
 ---
 
 Here are my Christmas presents to you all.

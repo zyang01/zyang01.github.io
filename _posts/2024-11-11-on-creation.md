@@ -1,7 +1,6 @@
 ---
 title: On Creation
 date: 2024-11-11 02:26:07 +0000
-tags: [christbro,physics,particlephysics,salvation]     # TAG names should always be lowercase
 ---
 
 Did we create anything at all? Of course you can make the claim that we created structures and patterns metaphysically speaking. But did we create a single atom?

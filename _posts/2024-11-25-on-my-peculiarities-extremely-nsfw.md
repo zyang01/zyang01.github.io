@@ -1,7 +1,6 @@
 ---
 title: On My Peculiarities (Extremely NSFW)
 date: 2024-11-25 13:46:17 +0000
-tags: [nsfw]     # TAG names should always be lowercase
 ---
 
 Even though I trained as a classical and contemporary dancer, I have this weird mental block of looking at myself. I have taken less than a handful of selfies in the last decade, and my LinkedIn profile picture was previously a passport photo. The profile pic I have right now was taken by a friend when we were travelling in Paris, and they took it without my knowledge. I liked it because it's the only picture of myself that I seemed natural and content.

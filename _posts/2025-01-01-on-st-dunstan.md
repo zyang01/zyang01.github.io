@@ -1,7 +1,6 @@
 ---
 title: On St Dunstan
 date: 2025-01-01 04:51:35 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 As mentioned previously, I studied A-Levels at St Dunstan’s College, Catford. It’s a tradition for international students to visit St Dunstan-in-the-East in the city of London. The school has been associated with the parish since 1446.

@@ -1,7 +1,6 @@
 ---
 title: On Time is Near
 date: 2024-11-16 04:59:13 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Dear Lord, please come. 🙏🫶🥺

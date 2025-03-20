@@ -1,7 +1,6 @@
 ---
 title: On Moving On
 date: 2024-11-13 04:46:34 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Despite my forgiveness and gratefulness, it still pains me every time I get in touch with the former friend and unfortunately the only way I could move on with my life is to remove any trace of their existence in my life. It still hurts a great deal for me to do so and the only comfort I find is from the passage below.

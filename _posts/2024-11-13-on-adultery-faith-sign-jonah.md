@@ -1,7 +1,6 @@
 ---
 title: On Adultery, Faithfulness, and the Sign of Jonah
 date: 2024-11-13 13:52:21 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Adulterous == Unfaithful

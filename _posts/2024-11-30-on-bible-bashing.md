@@ -1,7 +1,6 @@
 ---
 title: On Bible Bashing
 date: 2024-11-30 15:33:31 +0000
-tags: [christbro,bible,salvation,gospel]     # TAG names should always be lowercase
 ---
 
 A friend asked me why I am so aggressive with spreading the gospel, I'm paraphrasing here and the actual question was slightly more dismissive.

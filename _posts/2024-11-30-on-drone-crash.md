@@ -1,7 +1,6 @@
 ---
 title: On a Drone Crash
 date: 2024-11-30 11:11:12 +0000
-tags: [christbro,bible,salvation,dji]     # TAG names should always be lowercase
 ---
 
 Around half an hour after my previous post, I was overjoyed with the idea of meeting Mr Noisy Gong one day and was trying some fancy drone manoeuvres downstairs, but ended up in a crash three days after purchase.

@@ -1,7 +1,6 @@
 ---
 title: On My Faith as a Laughing Matter
 date: 2024-11-16 05:47:29 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 In case anyone is laughing in front of their screen at my posts and thinking this guy must have gone absolutely nuts. Please allow me to introduce Psalm 22 (Old Testament) attributed to King David.

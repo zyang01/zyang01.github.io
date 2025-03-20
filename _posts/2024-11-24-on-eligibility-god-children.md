@@ -1,7 +1,6 @@
 ---
 title: On Eligibility as God’s Children
 date: 2024-11-24 13:18:20 +0000
-tags: [christbro,bible,salvation,faith,trust,love,forgiveness,gift,free]     # TAG names should always be lowercase
 ---
 
 Anyone and everyone*. It doesn't matter if you are a murderer, a rapist or an atheist. All we need to do is repent by sincere recognition of wrongdoings and trust in Him.

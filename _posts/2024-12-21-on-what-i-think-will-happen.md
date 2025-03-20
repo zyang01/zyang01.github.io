@@ -1,7 +1,6 @@
 ---
 title: On What I Think Will Happen
 date: 2024-12-21 06:32:52 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 It's not the time for memes, but I believe it conveys the idea of what I think will happen within two years. I know it's extremely cruel and dark, but I need to warn as many people as possible despite how unpleasant the process will be.

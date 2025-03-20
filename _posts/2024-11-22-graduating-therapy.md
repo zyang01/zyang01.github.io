@@ -1,7 +1,6 @@
 ---
 title: On Graduating Therapy
 date: 2024-11-22 20:39:11 +0000
-tags: [christbro,bible,salvation,psychology]     # TAG names should always be lowercase
 ---
 
 Today marks the end of my 3+ years of therapy sessions with my Christ bro therapist.

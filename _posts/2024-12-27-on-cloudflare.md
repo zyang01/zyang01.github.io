@@ -1,7 +1,6 @@
 ---
 title: On Cloudflare
 date: 2024-12-27 05:30:32 +0000
-tags: [christbro,bible,salvation,cloudflare,cdn,openai,chatgpt]     # TAG names should always be lowercase
 ---
 
 This is a nerd post.

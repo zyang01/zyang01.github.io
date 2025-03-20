@@ -1,7 +1,6 @@
 ---
 title: On Worrying
 date: 2024-11-01 06:20:46 +0000
-tags: [christbro,salvation,secondcoming]     # TAG names should always be lowercase
 ---
 
 ```

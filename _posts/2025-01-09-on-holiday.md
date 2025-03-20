@@ -1,7 +1,6 @@
 ---
 title: On Holiday
 date: 2025-01-09 07:39:21 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 After 109 days of nonstop working, I have decided it’s time to go on holiday and get away from my new Boss for a bit.

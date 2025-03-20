@@ -1,7 +1,6 @@
 ---
 title: On Islam and Buddhism
 date: 2024-11-09 12:22:34 +0000
-tags: [islam,buddhism]     # TAG names should always be lowercase
 ---
 
 🚨🚨🚨Double Trigger Warning🚨🚨🚨: This post is likely to offend Muslims and Buddhists.

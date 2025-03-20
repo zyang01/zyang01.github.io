@@ -1,7 +1,6 @@
 ---
 title: On More Writings on the Wall
 date: 2024-11-24 13:28:55 +0000
-tags: [christbro,salvation]     # TAG names should always be lowercase
 ---
 
 When did Roman rule of Israel begin? 63 B.C.

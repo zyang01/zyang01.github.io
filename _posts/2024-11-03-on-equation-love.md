@@ -1,7 +1,6 @@
 ---
 title: On the Equation of Love
 date: 2024-11-03 20:26:35 +0000
-tags: [christbro,love,salvation]     # TAG names should always be lowercase
 
 ---
 

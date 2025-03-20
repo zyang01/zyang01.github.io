@@ -1,7 +1,6 @@
 ---
 title: On Messiah Complex
 date: 2024-11-17 20:37:15 +0000
-tags: [christbro,salvation,secondcoming]     # TAG names should always be lowercase
 ---
 
 Is it really that bad if the messiah comes back tomorrow?

@@ -1,7 +1,6 @@
 ---
 title: On My Testimony
 date: 2024-11-27 05:43:12 +0000
-tags: [christbro,bible,salvation,testimony,expertwitness,church,baptist]     # TAG names should always be lowercase
 ---
 
 My testimony at the Seventh Day Baptist Church, Birmingham this past weekend. I say “and then” a lot. 🙄

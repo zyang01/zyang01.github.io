@@ -1,7 +1,6 @@
 ---
 title: On Wisdom and Intellectual Curiosity
 date: 2024-12-01 21:01:38 +0000
-tags: [christbro,bible,salvation,wisdom,intellect,curiosity]     # TAG names should always be lowercase
 ---
 
 Where are they? Can't seem to find any on LinkedIn all day. All I see is fool’s gold everywhere. 🤔😳🫣

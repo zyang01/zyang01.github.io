@@ -1,7 +1,6 @@
 ---
 title: On Being His ICBM
 date: 2024-11-10 03:22:21 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 I started joking about being His ICBM (intercontinental ballistic missile) to friends. After the recent incident in Rome, Italy involving a fig tree, I prayed for Him to take my wrath away because the wrath belongs to Him and it’s not for me to burn the fig tree down.

@@ -1,7 +1,6 @@
 ---
 title: A Letter, a Warning and Christmas Presents
 date: 2024-12-21 20:03:51 +0000
-tags: [christbro,bible,salvation,church,christianity]     # TAG names should always be lowercase
 ---
 
 The following email just got delivered to 9,320 church-related email addresses in the United Kingdom.

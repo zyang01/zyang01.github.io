@@ -1,7 +1,6 @@
 ---
 title: On LinkedIn and the Internet in General
 date: 2024-12-01 22:00:53 +0000
-tags: [christbro,bible,salvation,linkedin,internet]     # TAG names should always be lowercase
 ---
 
 Zechariah 7:12-13

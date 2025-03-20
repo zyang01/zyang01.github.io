@@ -1,7 +1,6 @@
 ---
 title: On Throwing Up
 date: 2024-12-21 09:59:49 +0000
-tags: [christbro,bible,salvation,unemployment,employment,ai,openai,chatgpt,disaster,inflation]     # TAG names should always be lowercase
 ---
 
 I had a pretty big lunch yesterday and was travelling back home in the London underground when I had the confirmation for the economic scenario outlined in my previous posts titled “[On What I Think Will Happen](../on-what-i-think-will-happen){:target="_blank"}” and “[On Aerodynamics](../on-aerodynamics){:target="_blank"}”.

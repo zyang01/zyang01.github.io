@@ -1,7 +1,6 @@
 ---
 title: On Acute Chemical Toxicity of Uranium
 date: 2024-12-25 08:58:42 +0000
-tags: [christbro,bible,salvation,physics,chemistry,health,toxicity,poison,uranium,tezos,trilitech,foolish,idiotic]     # TAG names should always be lowercase
 ---
 
 Just in case my comment gets deleted.

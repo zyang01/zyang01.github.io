@@ -1,7 +1,6 @@
 ---
 title: On Before Judgement
 date: 2024-12-03 18:40:20 +0000
-tags: [christbro,bible,salvation]     # TAG names should always be lowercase
 ---
 
 Before you form any opinion or give me any advice, would you please please please read all my posts? I have had enough of people telling me off with partial knowledge about what the heck is going on. It’s all written down.

@@ -1,7 +1,6 @@
 ---
 title: On My Financial Situation
 date: 2024-12-03 13:47:17 +0000
-tags: []     # TAG names should always be lowercase
 ---
 
 Submitted my bankruptcy application on 28th October.
