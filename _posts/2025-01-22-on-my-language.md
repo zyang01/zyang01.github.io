@@ -1,7 +1,6 @@
 ---
 title: On My Language
 date: 2025-01-22 09:03:00 +0000
-
 ---
 
 In the first 27 years of my life, I barely murmured any of the strong language I used in my [recent 246 posts](../../timeline){:target="_blank"} in front of anyone who knew me personally. Despite the [countless suggestions](../on-appearances/){:target="_blank"} from people I respect to tone down the language, I decided to keep the good, the bad, and the ugly due to the fakeness I discovered in this 122-day journey of faith.
@@ -35,16 +34,16 @@ Enjoy, and God bless.
 Proverbs 26:27
 
 [27] Whoever digs a pit will fall into it, <br>
-	and a stone will come back on him who starts it rolling. (ESV)
+ and a stone will come back on him who starts it rolling. (ESV)
 
 ---
 
 Jeremiah 17:10
 
 [10] “I the LORD search the heart <br>
-	and test the mind, <br>
+ and test the mind, <br>
 to give every man according to his ways, <br>
-	according to the fruit of his deeds.” (ESV)
+ according to the fruit of his deeds.” (ESV)
 
 ---
 

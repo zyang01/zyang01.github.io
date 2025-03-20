@@ -2,7 +2,6 @@
 layout: post
 title: On Lust and Guilt
 date: 2025-02-19 04:07 +0000
-
 ---
 
 Unfortunately, this topic was easy for me to solve in a uniquely personal way, and He already gave me the answer on day 2 when He came to save me back in late August last year.
@@ -55,7 +54,7 @@ Isaiah 5:13–23
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Holy God shows himself holy in righteousness.<br>
 [17] Then shall the lambs graze as in their pasture,<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and nomads shall eat among the ruins of the rich.<br>
-	
+ 
 [18] Woe to those who draw iniquity with cords of falsehood,<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;who draw sin as with cart ropes,<br>
 [19] who say: “Let him be quick,<br>

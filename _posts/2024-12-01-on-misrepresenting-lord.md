@@ -1,7 +1,6 @@
 ---
 title: On Misrepresenting the Lord
 date: 2024-12-01 08:31:11 +0000
-
 ---
 
 Not sure if anyone’s noticed, but I have only ever described my relationship with my Heavenly Father and our conversations. I believe everyone’s relationship with Him is deeply personal.

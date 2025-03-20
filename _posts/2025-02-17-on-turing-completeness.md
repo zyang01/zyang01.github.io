@@ -2,7 +2,6 @@
 layout: post
 title: On Turing Completeness
 date: 2025-02-17 08:52 +0000
-
 ---
 
 If you read my posts, you might be under the impression that I was suggesting or hinting that I may be a certain unspeakable m-word. Personally, if you ask me if I would like to be the m-word, then my answer from the moment I was born to the end of time would be fuck no. And once again, I had a fucking blast minding my own business in the 27 years of my previous life until some motherfuckers came along, blew my first fucking proper holiday, and the people in my life continued to stab me in the back then left me to burn.

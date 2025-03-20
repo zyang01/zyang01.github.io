@@ -2,7 +2,6 @@
 layout: post
 title: On Homosexuality
 date: 2025-02-16 19:46 +0000
-
 ---
 
 **What about Leviticus 18:22 and 20:13.**

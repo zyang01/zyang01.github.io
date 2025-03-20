@@ -1,7 +1,6 @@
 ---
 title: On the Equation of Love
 date: 2024-11-03 20:26:35 +0000
-
 ---
 
 I had a crush on a friend of mine when I was in Chinese high school. I contemplated whether to tell him about my feelings when I was 16, shortly before moving to the United Kingdom for my study. I mapped out all possibilities in my head in order to evaluate the most optimal choice to make.

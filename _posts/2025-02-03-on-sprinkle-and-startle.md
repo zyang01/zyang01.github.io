@@ -2,7 +2,6 @@
 layout: post
 title: On Sprinkle and Startle
 date: 2025-02-03 12:58 +0000
-
 ---
 
 As mentioned in [a previous post](../on-mistake/){:target="_blank"}, I was feeling quite ill from the leftover shame after spending an entire weekend verifying my accounts on several popular video-sharing platforms and posting [my New Year's present](../on-sacrifice/){:target="_blank"} to the world in an attempt to bring [my community](../on-my-community/){:target="_blank"} back to my Boss. Whilst trying to pull myself back together from the humiliation of showing my nakedness to the world, I stumbled across the servant songs in the Book of Isaiah concerning a suffering servant whose identity is a central disagreement between Judaism and Christianity. The most suitable word to describe how I felt when I read Isaiah 52:15 was startled.

@@ -2,7 +2,6 @@
 layout: post
 title: On Salvation
 date: 2025-01-31 08:21 +0000
-
 ---
 
 One of my biggest questions on this 131-day journey is why no one believes me even though I have been telling nothing but the truth. For unbelievers, that is understandable, and I have been [working on it](../on-faith-precedes-reason/){:target="_blank"}. The remarkably annoying thing is even Christians don't believe me most of the time. Hence I do most of my shouting and bitching on this blog. I have got to let the steam out somewhere.

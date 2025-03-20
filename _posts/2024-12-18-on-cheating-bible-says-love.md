@@ -1,7 +1,6 @@
 ---
 title: On Cheating and Bible Says Love
 date: 2024-12-18 12:56:56 +0000
-
 ---
 
 If you are a faithless unbeliever or sceptic, and you have graciously spent the time reading my 200 posts so far, then you might be wondering how on earth is it possible for this 12-week and 3-day-old Christian intern to be quoting scripture left and right. 🤔

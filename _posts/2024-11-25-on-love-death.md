@@ -1,7 +1,6 @@
 ---
 title: On Love and Death
 date: 2024-11-25 06:39:21 +0000
-
 ---
 
 For about two weeks after I got [kicked out of the gay/bi naturist campsite rosebay](https://joeatrosebay.com/){:target="_blank"}, I couldn't bear staying at home alone and just wanted to be around people, but at the same time, I also didn't want to talk to anyone because my brain was spinning at 1,000% capacity trying to figure out what went wrong at the campsite. There is a 24-hour gay sauna in Soho, London and I spent a lot of time there.

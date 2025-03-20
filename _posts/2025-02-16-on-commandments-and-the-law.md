@@ -2,7 +2,6 @@
 layout: post
 title: On Commandments and the Law
 date: 2025-02-16 22:46 +0000
-
 ---
 
 I did more soul-searching over the last few days about the Ten Commandments and my Lord and Saviour Jesus Christ's commandments in the New Testament.
