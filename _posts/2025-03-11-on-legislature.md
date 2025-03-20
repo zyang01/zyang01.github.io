@@ -2,7 +2,6 @@
 layout: post
 title: On Legislature
 date: 2025-03-11 14:50 +0000
-pin: true
 ---
 
 In my typical fashion, I tried spamming the UK Parliament earlier today after scraping the email addresses of 642 MPs. I also have a list of legislatures from 190+ countries that may or may not have been loaded into a Redis sorted set on an AWS EC2 instance for web scraping. The UK Parliament email server blocked my first attempt at sending the following email to 100 MPs. Then I realised my message might not be that important, and the MPs I was emailing could have a life to save today. Reading my email might not be the most constructive use of their valuable time. If my message is indeed that important, then surely one email should be more than enough. I called it a day after writing to a handful of Lords, who say Jesus Christ and Artificial Intelligence the most, according to TheyWorkForYou.com.

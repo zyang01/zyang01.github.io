@@ -1,7 +1,6 @@
 ---
 title: On Genesis 3 (Fall of Man)
 date: 2025-01-05 18:59:04 +0000
-pin: true
 ---
 
 Had an interesting discussion with some interesting people today regarding the fall of man in Genesis 3.

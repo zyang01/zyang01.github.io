@@ -2,7 +2,6 @@
 layout: post
 title: On Money and Fiscal Policy
 date: 2025-03-17 09:00 +0000
-pin: true
 ---
 
 Welcome to the first of a series of policy posts as I prepare to register a political party in Great Britain. I intend to apply the principles in my personal life where applicable. Someone has got to start walking in His statutes, observing His commandments, and doing them.
