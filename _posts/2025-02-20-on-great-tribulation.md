@@ -75,15 +75,15 @@ The Final Judgment
 
 ### Edit 4
 
-[Fuck me](https://dl.hesaid.love/love_not_lust.mp4){:target="_blank"}. I just realised the implications of what I had just proved in Edit 3. Now I find [Malachi 3:1 even more annoying](../on-background-music/#malachi-3-1){:target="_blank"} and have zero desire to laugh. It does not feel great when you find out you are the fool all along, right? 🤡
+[Fuck me](https://dl.hesaidlove.com/love_not_lust.mp4){:target="_blank"}. I just realised the implications of what I had just proved in Edit 3. Now I find [Malachi 3:1 even more annoying](../on-background-music/#malachi-3-1){:target="_blank"} and have zero desire to laugh. It does not feel great when you find out you are the fool all along, right? 🤡
 
-Since we have announced the **year of the Lord's favour** below, might as well do the **Day of the Lord** together. I seem to always run ahead of Boss Man and keep tripping over. I thought the Day of the Lord was why He told me to go to Israel last month. You can find out what happened by looking up the relevant posts yourself and I'm going to stop putting effort into hyperlinking everything. It takes a fuck ton of effort and barely anyone read my posts if I didn't sprinkle the nations to shove my posts to your fucking faces. And the fucking scribes and Pharisees did not [fucking bother to reply](https://dl.hesaid.love/scribes_and_pharisees.pdf){:target="_blank"} to any single fucking email other than the first couple fucking courtesy responses.
+Since we have announced the **year of the Lord's favour** below, might as well do the **Day of the Lord** together. I seem to always run ahead of Boss Man and keep tripping over. I thought the Day of the Lord was why He told me to go to Israel last month. You can find out what happened by looking up the relevant posts yourself and I'm going to stop putting effort into hyperlinking everything. It takes a fuck ton of effort and barely anyone read my posts if I didn't sprinkle the nations to shove my posts to your fucking faces. And the fucking scribes and Pharisees did not [fucking bother to reply](https://dl.hesaidlove.com/scribes_and_pharisees.pdf){:target="_blank"} to any single fucking email other than the first couple fucking courtesy responses.
 
 You can find out what happens on the day yourself and for the first time in my life, I think I'm seriously going to not bother this time and you can all go fuck yourselves. I thought Malachi 3:2 might not mean what people think they mean when I read it last month in Israel. The only thing I have left to say is Dude's math is confusing AF and I technically dropped out of my maths and CS degree after only one term so I know dick about math either. I know dick about how long the Day of the Lord is, could be one day, one week, one month or one year, but I suspect it won't be longer than one year otherwise why have the Day of the Lord and the year of the Lord's favour? You will know what I'm on about if you seriously tried reading humanity's bestseller before. Ask Boss Man if you really wanna know, I'm not gonna bother and I'm certain I will have at least 10x more fun watching people get what they deserve while getting surprised by the King of Drama and Horror, wouldn't you agree? I think it's called justice and righteousness and I hope that's how you spell them since I haven't seen those two words for a while now. Just need to find a couple of faithful new friends, never bold enough to watch horror movies myself and ideally they have a comfy sofa I can crash on.
 
 If you are a faithful believer, then congratulations. Happy New Millennium and you are more than welcome.
 
-If you are [an unfaithful motherfucking cunt](../on-commandments-and-the-law/#definition-of-a-cunt){:target="_blank"}, [go fuck yourself](https://dl.hesaid.love/love_not_lust.mp4){:target="_blank"}. 🖕
+If you are [an unfaithful motherfucking cunt](../on-commandments-and-the-law/#definition-of-a-cunt){:target="_blank"}, [go fuck yourself](https://dl.hesaidlove.com/love_not_lust.mp4){:target="_blank"}. 🖕
 
 I'm gonna Bible and chill. Have read probably less than 25% of the thick-ass bestseller. Only flipped through Genesis and up to Exodus 10ish one evening late last year out of the 5 books of The Law.
 
@@ -93,7 +93,7 @@ I'm gonna Bible and chill. Have read probably less than 25% of the thick-ass bes
 
 ### Edit 1
 
-In case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaid.love/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
+In case you are so fucking stupid and ignorant to not know [you are losing your job within 2 years](https://letter.hesaid.love/){:target="_blank"} if you don't have a degree more complicated than computer science, you can read my lazy-ass research using ChatGPT [here](https://dl.hesaidlove.com/1335_Days_and_Tribulation.pdf){:target="_blank"}. Feel free to ignore if you are in the top 1%, otherwise let's see if the people telling you not to worry will help you when shit hits the fan and whether they stand to gain or lose from your downfall and stupidity.
 
 See ya on judgement day. Might be a good idea to get [Amazon Prime](https://www.gotquestions.org/famine-hearing-words-Lord.html){:target="_blank"}. 🙏😅😂
 
@@ -112,19 +112,19 @@ Revelation 17:14
 **Correction: see [this post](../on-revelation-13/){:target="_blank"} on the man of lawlessness, antichrist and my apology.**
 
 <div style="display: flex; justify-content: space-between;">
-  <img src="https://dl.hesaid.love/666/Screenshot_20250220-152638.png" alt="" style="width: 48%;">
-  <img src="https://dl.hesaid.love/666/Screenshot_20250220-152529.png" alt="" style="width: 48%;">
+  <img src="https://dl.hesaidlove.com/666/Screenshot_20250220-152638.png" alt="" style="width: 48%;">
+  <img src="https://dl.hesaidlove.com/666/Screenshot_20250220-152529.png" alt="" style="width: 48%;">
 </div>
 
 <div style="display: flex; justify-content: space-between;">
-  <img src="https://dl.hesaid.love/666/Screenshot_20250220-152314.png" alt="" style="width: 48%;">
-  <img src="https://dl.hesaid.love/666/Screenshot_20250220-152332.png" alt="" style="width: 48%;">
+  <img src="https://dl.hesaidlove.com/666/Screenshot_20250220-152314.png" alt="" style="width: 48%;">
+  <img src="https://dl.hesaidlove.com/666/Screenshot_20250220-152332.png" alt="" style="width: 48%;">
 </div>
 
 <div style="display: flex; justify-content: space-between;">
-  <img src="https://dl.hesaid.love/666/photo_2025-02-20_21-47-06.jpg" alt="" style="width: 50%;">
-  <img src="https://dl.hesaid.love/666/photo_2025-02-20_21-47-16.jpg" alt="" style="width: 50%;">
-  <img src="https://dl.hesaid.love/666/photo_2025-02-20_21-47-12.jpg" alt="" style="width: 50%;">
+  <img src="https://dl.hesaidlove.com/666/photo_2025-02-20_21-47-06.jpg" alt="" style="width: 50%;">
+  <img src="https://dl.hesaidlove.com/666/photo_2025-02-20_21-47-16.jpg" alt="" style="width: 50%;">
+  <img src="https://dl.hesaidlove.com/666/photo_2025-02-20_21-47-12.jpg" alt="" style="width: 50%;">
 </div>
 
 ## Abomination of Desolation on July 1999
@@ -135,7 +135,7 @@ I arrived at the gay/bi-naturist Rosebay campsite 45 weeks ago.
 
 [UNESCO Digital Library](https://unesdoc.unesco.org/ark:/48223/pf0000122938){:target="_blank"}
 
-<embed src="https://dl.hesaid.love/666/122938engo.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/666/122938engo.pdf" type="application/pdf" width="100%" height="600px" />
 
 ## Backups
 

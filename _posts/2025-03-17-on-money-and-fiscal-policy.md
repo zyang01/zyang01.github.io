@@ -224,7 +224,7 @@ God’s Provision
 
 ## Policy Areas
 
-<embed src="https://dl.hesaid.love/Political_Manifesto_Policy_Areas.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/Political_Manifesto_Policy_Areas.pdf" type="application/pdf" width="100%" height="600px" />
 
 ## Faith to Fall Back On - Hunter Hayes
 

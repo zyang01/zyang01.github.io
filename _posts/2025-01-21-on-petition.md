@@ -56,5 +56,4 @@ I declared bankruptcy three months ago and started writing down my story on my b
 
 <br>
 
-<object data="https://dl.hesaid.love/petition.pdf" type='application/pdf'></object>
-
+<object data="https://dl.hesaidlove.com/petition.pdf" type='application/pdf'></object>

@@ -15,7 +15,7 @@ Rule 1 + Rule 2 = Don't be [a cunt](../on-commandments-and-the-law/#definition-o
 
 This is ChatGPT explaining it and my sexual theologian job title lasted just over 24 hours.
 
-<embed src="https://dl.hesaid.love/Lust_vs_Love.pdf" type="application/pdf" width="100%" height="300px" />
+<embed src="https://dl.hesaidlove.com/Lust_vs_Love.pdf" type="application/pdf" width="100%" height="300px" />
 
 ---
 

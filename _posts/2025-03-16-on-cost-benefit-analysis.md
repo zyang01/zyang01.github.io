@@ -94,4 +94,4 @@ Jonah’s Prayer
 
 ## JPS vs KJV
 
-<embed src="https://dl.hesaid.love/JPS_vs_KJV_Comparison.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/JPS_vs_KJV_Comparison.pdf" type="application/pdf" width="100%" height="600px" />

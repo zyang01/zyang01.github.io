@@ -45,6 +45,6 @@ John 15:12–17
 
 ---
 
-Edit: I sent [this email](https://dl.hesaid.love/due-diligence-email.pdf){:target="_blank"} after this post was published. I have a couple more to-do items and then I believe according to the Old Testament, I have an announcement to make along with a couple of other miscellaneous items. **Consider this tables overturned and you've been served.**
+Edit: I sent [this email](https://dl.hesaidlove.com/due-diligence-email.pdf){:target="_blank"} after this post was published. I have a couple more to-do items and then I believe according to the Old Testament, I have an announcement to make along with a couple of other miscellaneous items. **Consider this tables overturned and you've been served.**
 
 Edit 2: I just realised throwing scripture in my face and accusing me of not knowing God's love after all that I had done especially after I walked off a cliff in mainland China to save everyone including the very person who did that from God's wrath was effectively taking the LORD thy God's name in vain, and rather unfortunately the Holy Spirit confirmed that to me with one of the strongest confirmations I have ever had to date. Once again, I take no pleasure in the demise of a friend from my previous life and I messaged her again to repent after publishing this post, but whatever happens happens. I will stay home and focus myself getting my adult streaming career started on Chaturbate and Stripchat and bring good news to my community.

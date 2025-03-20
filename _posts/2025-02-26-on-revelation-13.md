@@ -30,7 +30,7 @@ In reality, no one knows exactly what 666 means. We can only draw on basic conce
 
 Adonikam (Hebrew אֲדֹנִיקָם, meaning, "My Lord is risen up."[57]) is a Biblical figure, one of those "which came with Zerubbabel" (Ezra 2:13). His "children," or retainers, numbering 666, came to Jerusalem (Ezra 8:13). In the Septuagint, depending on the manuscript and location, the name is given as Adon[e]ikam, Adonikan, Adeikam, Adenikam, Adaneikam or Adoniakaim.[57] In Nehemiah 7:18, his descendants were 667 instead of the previous number 666.[58]
 
-<embed src="https://dl.hesaid.love/Meaning_of_Onik_in_Adonikam.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/Meaning_of_Onik_in_Adonikam.pdf" type="application/pdf" width="100%" height="600px" />
 
 ## 1 Corinthians 13:8–13
 
@@ -75,7 +75,7 @@ The First Beast
 
 I'm way too lazy to work out everything myself and my to-do list is barely going down at the moment. Feel free to have a go at it yourself, but here is where the 27 years of my previous life come in. The [ethical thought experiment](../on-sheep-and-goats/){:target="_blank"} I designed during COVID-19 came true last year, which involved an Austrian artist, a time machine, nuclear weapons, humanity and divine intervention. I asked ChatGPT about the symbolism of the sea in the Holy Bible, and put down humanity and/or reason/science for the first beast. The mortal wound was World War II and/or physics.
 
-<embed src="https://dl.hesaid.love/symbolism_of_the_sea.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/symbolism_of_the_sea.pdf" type="application/pdf" width="100%" height="600px" />
 
 ![Now I am become Death, the destroyer of worlds](/vDxArBCrKmpZmHt4y0.jpg)
 
@@ -94,17 +94,17 @@ I'm way too lazy to work out everything myself and my to-do list is barely going
 ### Second half of the tribulation - Setting up the abomination of desolation
 
 [Science for the twenty-first century: a new commitment](https://unesdoc.unesco.org/ark:/48223/pf0000122938){:target="_blank"}
-📥 [Download (Backup)](https://dl.hesaid.love/122938engo.pdf){:target="_blank"}
+📥 [Download (Backup)](https://dl.hesaidlove.com/122938engo.pdf){:target="_blank"}
 
 [World Declaration on Higher Education for the Twenty-first Century: Vision and Action and Framework for Priority Action for Change and Development in Higher Education, adopted by the World Conference on Higher Education: Higher Education in the Twenty-first Century, Vision and Action, 9 October 1998](https://unesdoc.unesco.org/ark:/48223/pf0000141952){:target="_blank"}
-📥 [Download (Backup)](https://dl.hesaid.love/141952eng.pdf){:target="_blank"}
+📥 [Download (Backup)](https://dl.hesaidlove.com/141952eng.pdf){:target="_blank"}
 
 ### First half of the tribulation (maybe)
 
 [New International Economic Order (NIEO)](https://en.wikipedia.org/wiki/New_International_Economic_Order){:target="_blank"}
 
 [Declaration on the Establishment of a New International Economic Order.](https://digitallibrary.un.org/record/218450?v=pdf){:target="_blank"}
-📥 [Download (Backup)](https://dl.hesaid.love/A_RES_3201(S-VI)-EN.pdf){:target="_blank"}
+📥 [Download (Backup)](https://dl.hesaidlove.com/A_RES_3201(S-VI)-EN.pdf){:target="_blank"}
 
 [Helsinki Accords](https://en.wikipedia.org/wiki/Helsinki_Accords){:target="_blank"}
 
@@ -178,7 +178,7 @@ The Golden Rule
 
 The descendants of Adonikam are 667 as counted in Nehemiah 7:18 instead of 666 in Ezra 2:13. You can read about my little chitchat with ChatGPT below. I noticed at least one error where ChatGPT confused the counts as 667 in Ezra 2:13 and 666 in Nehemiah 7:18.
 
-<embed src="https://dl.hesaid.love/chitchat_666_667_chatgpt.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/chitchat_666_667_chatgpt.pdf" type="application/pdf" width="100%" height="600px" />
 
 <span id="antichrist-not-christian">Given we are in an intellectual, spiritual, moral and ethical decay where a Christian informed me yesterday that trying to save other people is a sign of pride</span>, I have decided to follow Boss Man regardless of what the antichrists pretending to be Christians say. Although, I kinda realised I had been following Him all my life even in the 27 years of my previous life. The only thing is I did not know His name, but I did know His other glorious name - Truth. I learned 157 days ago that His name is Jesus Christ, my Lord and Saviour.
 
@@ -200,6 +200,6 @@ Edit: surprise, surprise, totally did not expect the first jobs [AI would take a
 
 ---
 
-<embed src="https://dl.hesaid.love/Man_of_Lawlessness_Bible_Summary.pdf" type="application/pdf" width="100%" height="600px" />
+<embed src="https://dl.hesaidlove.com/Man_of_Lawlessness_Bible_Summary.pdf" type="application/pdf" width="100%" height="600px" />
 
 ![Fuck off, Satan](/E5sHTxyHTXDA43nCHZ.gif)
