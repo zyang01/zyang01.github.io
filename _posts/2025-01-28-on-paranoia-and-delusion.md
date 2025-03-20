@@ -86,10 +86,6 @@ If you are a faithless motherfucker and would like to know how fucked you will b
 
 The living God is righteous. Halle-fucking-lujah.
 
-<csmtupload@hmpo.gov.uk>
-
-PEX surname and docs to be returned
-
 ---
 
 Matthew 16:4
