@@ -21,7 +21,7 @@ The definition of love is the greatest sacrifice one is willing to make. Just as
 
 Fulfilling the Law Through Love
 
-[8] Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. [9] For the commandments, “You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet,” and any other commandment, are summed up in this word: “You shall love your neighbor as yourself.” [10] Love does no wrong to a neighbor; therefore love is the fulfilling of the law.
+**[8] Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. [9] For the commandments, “You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet,” and any other commandment, are summed up in this word: “You shall love your neighbor as yourself.” [10] Love does no wrong to a neighbor; therefore love is the fulfilling of the law.**
 
 [11] Besides this you know the time, that the hour has come for you to wake from sleep. For salvation is nearer to us now than when we first believed. [12] The night is far gone; the day is at hand. So then let us cast off the works of darkness and put on the armor of light. [13] Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. [14] But put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires. (ESV)
 
@@ -36,6 +36,90 @@ Shelter God's children by taking them off the streets, feeding and putting a roo
 Reunite communities, including but not limited to LGBTQIA+, with God and let them know they are loved too.
 
 Prepare humanity to defend against [the socioeconomic tsunami](https://letter.hesaid.love/){:target="_blank"} brought about by Artificial Intelligence we have never seen before. We sincerely hope we are wrong, but we face significant unemployment rates and suffering globally for the bottom 90%.
+
+---
+
+### Matthew 6:25–34
+
+Do Not Be Anxious
+
+[25] “Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? [26] Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? [27] And which of you by being anxious can add a single hour to his span of life? [28] And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, [29] yet I tell you, even Solomon in all his glory was not arrayed like one of these. [30] But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? [31] Therefore do not be anxious, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ [32] For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. **[33] But seek first the kingdom of God and his righteousness, and all these things will be added to you.**
+
+[34] “Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+
+### Isaiah 58
+
+True and False Fasting
+
+ [1] “Cry aloud; do not hold back;  
+  &nbsp;&nbsp;&nbsp;&nbsp;lift up your voice like a trumpet;  
+ declare to my people their transgression,  
+  &nbsp;&nbsp;&nbsp;&nbsp;to the house of Jacob their sins.  
+ [2] Yet they seek me daily  
+  &nbsp;&nbsp;&nbsp;&nbsp;and delight to know my ways,  
+ as if they were a nation that did righteousness  
+  &nbsp;&nbsp;&nbsp;&nbsp;and did not forsake the judgment of their God;  
+ they ask of me righteous judgments;  
+  &nbsp;&nbsp;&nbsp;&nbsp;they delight to draw near to God.  
+ [3] ‘Why have we fasted, and you see it not?  
+  &nbsp;&nbsp;&nbsp;&nbsp;Why have we humbled ourselves, and you take no knowledge of it?’  
+ Behold, in the day of your fast you seek your own pleasure,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and oppress all your workers.  
+ [4] Behold, you fast only to quarrel and to fight  
+  &nbsp;&nbsp;&nbsp;&nbsp;and to hit with a wicked fist.  
+ Fasting like yours this day  
+  &nbsp;&nbsp;&nbsp;&nbsp;will not make your voice to be heard on high.  
+ [5] Is such the fast that I choose,  
+  &nbsp;&nbsp;&nbsp;&nbsp;a day for a person to humble himself?  
+ Is it to bow down his head like a reed,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and to spread sackcloth and ashes under him?  
+ Will you call this a fast,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and a day acceptable to the LORD?  
+
+ **[6] “Is not this the fast that I choose:**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**to loose the bonds of wickedness,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**to undo the straps of the yoke,**  
+ **to let the oppressed go free,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and to break every yoke?**  
+ **[7] Is it not to share your bread with the hungry**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and bring the homeless poor into your house;**  
+ **when you see the naked, to cover him,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and not to hide yourself from your own flesh?**  
+ **[8] Then shall your light break forth like the dawn,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and your healing shall spring up speedily;**  
+ **your righteousness shall go before you;**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**the glory of the LORD shall be your rear guard.**  
+ **[9] Then you shall call, and the LORD will answer;**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**you shall cry, and he will say, ‘Here I am.’**  
+ **If you take away the yoke from your midst,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**the pointing of the finger, and speaking wickedness,**  
+ **[10] if you pour yourself out for the hungry**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and satisfy the desire of the afflicted,**  
+ **then shall your light rise in the darkness**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and your gloom be as the noonday.**  
+ **[11] And the LORD will guide you continually**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and satisfy your desire in scorched places**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**and make your bones strong;**  
+ **and you shall be like a watered garden,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**like a spring of water,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**whose waters do not fail.**  
+ **[12] And your ancient ruins shall be rebuilt;**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**you shall raise up the foundations of many generations;**  
+ **you shall be called the repairer of the breach,**  
+  &nbsp;&nbsp;&nbsp;&nbsp;**the restorer of streets to dwell in.**  
+
+ [13] “If you turn back your foot from the Sabbath,  
+  &nbsp;&nbsp;&nbsp;&nbsp;from doing your pleasure on my holy day,  
+ and call the Sabbath a delight  
+  &nbsp;&nbsp;&nbsp;&nbsp;and the holy day of the LORD honorable;  
+ if you honor it, not going your own ways,  
+  &nbsp;&nbsp;&nbsp;&nbsp;or seeking your own pleasure, or talking idly;  
+ [14] then you shall take delight in the LORD,  
+  &nbsp;&nbsp;&nbsp;&nbsp;and I will make you ride on the heights of the earth;  
+ I will feed you with the heritage of Jacob your father,  
+  &nbsp;&nbsp;&nbsp;&nbsp;for the mouth of the LORD has spoken.” (ESV)  
+
+---
 
 ## Draft Party Emblem
 
