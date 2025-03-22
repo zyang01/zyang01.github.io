@@ -5,7 +5,7 @@ date: 2025-03-22 12:01 +0000
 pin: true
 ---
 
-My faithful theologian friend mentioned that my three not-so-tiny steps in the policy agenda sound more like a charity than a political party. During our consultation session yesterday, he used the analogy of eating with two knives, suggesting that a political party is for winning elections, which is inherently divisive and a wrong instrument for my goals. My faithful theologian friend also reminded me that Boss Man specialised in carpentry before starting His ministry at around age 30 and going on a 2,000-year paid leave after a workplace injury.
+My faithful theologian friend mentioned that my [three not-so-tiny steps](../on-faith-party/#draft-launch-manifesto){:target="_blank"} in the policy agenda sound more like a charity than a political party. During our consultation session yesterday, he used the analogy of eating with two knives, suggesting that a political party is for winning elections, which is inherently divisive and a wrong instrument for my goals. My faithful theologian friend also reminded me that Boss Man specialised in carpentry before starting His ministry at around age 30 and going on a 2,000-year paid leave after a workplace injury.
 
 Frankly, I have zero interest in getting into public office, and there are more than enough pretentious Oxford grads in the UK Parliament quarrelling over futile efforts and vanity. I also cannot imagine myself as a politician. How could I exercise abominably with talented Germans in FickstutenMarkt whilst listening to sick Berlin techno ever again? A faithful gay friend who was perhaps a little bit too zealous for planting seeds also mentioned that his friends and colleagues do not like discussing politics.
 
