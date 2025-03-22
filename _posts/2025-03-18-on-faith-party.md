@@ -5,6 +5,8 @@ date: 2025-03-18 12:48 +0000
 pin: true
 ---
 
+> 22 March 2025 Update: See the post [On Carpentry](../on-carpentry/){:target="_blank"}.
+
 Initially, I had the name Restore Faith Party in mind, but the domain name restore.faith costs over £500, and I could barely afford a cup of vanilla latte with coconut milk. By the grace of God, I managed to secure the domain name [FaithParty.org](https://www.faithparty.org/){:target="_blank"} earlier this morning for $7.66 (£5.91), the price of a cup of vanilla latte with coconut milk at London RPI with spare change. As a [Rust](https://en.wikipedia.org/wiki/Rust_(programming_language)){:target="_blank"} developer, I'm also a gigantic [functional programming](https://en.wikipedia.org/wiki/Functional_programming){:target="_blank"} (FP) fanboy.
 
 I am working on the [RP1 GB form](https://www.electoralcommission.org.uk/sites/default/files/2023-06/RP1%20GB%20updated%20May%202023.pdf){:target="_blank"} (Application to register a political party in Great Britain). Due to my poor history of managing personal finance, I would raise more than a few eyebrows if I signed up to be the treasurer. I asked a faithful new friend if he would like the honour. I want the Lord to be the party leader, but I do not have the postcode for His current address. I am also reluctant to ask for His telephone number and email address. Therefore, I disgracefully nominated myself for the interim position. Hopefully, this will be the last time I try over-employment. I almost threw myself off the balcony when I did that last time.

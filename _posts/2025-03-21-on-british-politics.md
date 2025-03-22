@@ -4,6 +4,8 @@ title: On British Politics
 date: 2025-03-21 07:18 +0000
 ---
 
+> 22 March 2025 Update: See the post [On Carpentry](../on-carpentry/){:target="_blank"}.
+
 As alluded to, I am getting involved in British politics as yet another pretentious Oxford grad and massive hypocrite.
 
 A faithful theologian friend suggested yesterday that I could join one of the 300+ political parties in the United Kingdom. I could get some experience in politics and learn the ropes that way.
