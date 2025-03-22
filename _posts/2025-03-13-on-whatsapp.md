@@ -12,6 +12,8 @@ After a recent realisation, I think true friends would make more than an effort 
 
 The only issue is the dude went to a [catholic](../reasoning-behind-going-rome-fig-tree/){:target="_blank"} school.
 
+22 March 2025 Update: I had coffee with two faithful new friends yesterday. It dawned on me that the friends you lose when you lose your phone are perhaps not worthy.
+
 ---
 
 ## John 15:12–17
