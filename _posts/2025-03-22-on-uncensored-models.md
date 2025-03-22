@@ -73,7 +73,7 @@ eval rate:            18.32 tokens/s
 
 ---
 
-My question for you is this. How comfortable are you with nerds like me playing with [uncensored large language models](https://ollama.com/blog/run-llama2-uncensored-locally){:target="_blank"}? I do not know if the amount of sex I had was average amongst my technically proficient peers. I certainly hope someone loves them as much as Boss Man loves me.
+My question for you is this. How comfortable are you with [nerds like me](https://erichartford.com/uncensored-models){:target="_blank"} playing with [uncensored large language models](https://ollama.com/blog/run-llama2-uncensored-locally){:target="_blank"}? I do not know if the amount of sex I had was average amongst my technically proficient peers. I certainly hope someone loves them as much as Boss Man loves me.
 
 ---
 
