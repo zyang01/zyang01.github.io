@@ -91,4 +91,4 @@ Of David, when he changed his behavior before Abimelech, so that he drove him ou
 
 I have been waiting for the day to share this meme. It is finally here.
 
-![Oh my God, okay it's happening, everybody stay calm.](/qnQqzC76m55dRpzVyb.jpg)
+![Oh my God, okay it's happening, everybody stay calm.](/YMKpWWG4nWMWRwN3wW.gif)
