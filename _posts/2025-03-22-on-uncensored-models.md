@@ -80,8 +80,16 @@ My question for you is this. How comfortable are you with [nerds like me](https:
 >
 > Most of these models (for example, Alpaca, Vicuna, WizardLM, MPT-7B-Chat, Wizard-Vicuna, GPT4-X-Vicuna) have some sort of embedded alignment. For general purposes, this is a good thing. This is what stops the model from doing bad things, like teaching you how to cook meth and make bombs. But what is the nature of this alignment? And, why is it so?
 >
+> [...](https://erichartford.com/uncensored-models#heading-whats-an-uncensored-model){:target="_blank"}
+>
+> Why should uncensored models exist?
+>
+> [...](https://erichartford.com/uncensored-models#heading-why-should-uncensored-models-exist){:target="_blank"}
+>
+> [Even Google knows this is inevitable.](https://semianalysis.com/2023/05/04/google-we-have-no-moat-and-neither/){:target="_blank"}
+>
 > Eric Hartford  
-> <https://erichartford.com/uncensored-models>
+> <https://erichartford.com/uncensored-models>{:target="_blank"}
 
 Still think I'm a delusional nutjob?
 
