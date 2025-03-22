@@ -93,6 +93,8 @@ My question for you is this. How comfortable are you with [nerds like me](https:
 
 Still think I'm a delusional nutjob?
 
+Edit: By the grace of God, I managed to secure the domain name [UncensoredModels.com](https://uncensoredmodels.com/){:target="_blank"} for $11.46 (£8.87). Let's find out how much sex sells, eh? 😉😉😉
+
 ---
 
 ## Ezekiel 33:1–9
