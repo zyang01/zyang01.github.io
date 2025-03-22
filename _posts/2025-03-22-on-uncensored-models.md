@@ -12,7 +12,7 @@ I was bored this afternoon. I asked ChatGPT how to run a [large language model](
 
 I don't use arch btw.
 
-I'm running Ubuntu 24.04.2 LTS. It took two commands.
+I'm running Ubuntu 24.04.2 LTS. It took just two commands.
 
 ---
 
