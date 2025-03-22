@@ -79,7 +79,8 @@ My question for you is this. How comfortable are you with [nerds like me](https:
 >
 > Most of these models (for example, Alpaca, Vicuna, WizardLM, MPT-7B-Chat, Wizard-Vicuna, GPT4-X-Vicuna) have some sort of embedded alignment. For general purposes, this is a good thing. This is what stops the model from doing bad things, like teaching you how to cook meth and make bombs. But what is the nature of this alignment? And, why is it so?
 >
-> Eric Hartford
+> Eric Hartford  
+> <https://erichartford.com/uncensored-models>
 
 Still think I'm a delusional nutjob?
 
