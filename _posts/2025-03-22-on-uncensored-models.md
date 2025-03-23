@@ -98,6 +98,12 @@ Edit: By the grace of God, I managed to secure the domain name [UncensoredModels
 
 ---
 
+**For eternal membership, go to your local church this weekend and ask for the starter pack containing [humanity's bestseller](https://www.biblegateway.com/){:target="_blank"}. Enjoy. 😘**
+
+<embed src="https://dl.hesaidlove.com/UncensoredModels.com.pdf" type="application/pdf" width="100%" height="700px" />
+
+---
+
 ## Ezekiel 33:1–9
 
 Ezekiel Is Israel’s Watchman
