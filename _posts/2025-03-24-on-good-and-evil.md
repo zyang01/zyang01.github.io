@@ -16,7 +16,7 @@ If this is anyone else, I think some people should start writing to their MP and
 
 You tell me if I know how to spell good and evil.
 
-I was always an ass man and never a boobs guy anyway.
+I am always an ass man and never a boobs guy anyway.
 
 ---
 
