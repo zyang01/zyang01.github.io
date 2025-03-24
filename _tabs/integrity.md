@@ -29,10 +29,6 @@ ubuntu@ipfs:~$ ipfs name resolve /ipns/dl.hesaid.love
 /ipfs/bafybeig4ukhy4m64xta5ib6vmkcfloplnpo7kas34qgtqurq7ni5vhfiom
 ```
 
-### Incomplete List of In-use Domain Names
-
-- hesaid.love
-- heisback.fyi
-- antichrist.boo
+Hint: IPFS is censorship-resistant. 😉
 
 ![](/V3MuD1Z69pJm8VACHV.png)
