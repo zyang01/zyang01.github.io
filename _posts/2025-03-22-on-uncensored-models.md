@@ -96,7 +96,7 @@ Still think I'm a delusional nutjob?
 
 Edit (22 March 2025): By the grace of God, I managed to secure the domain name [UncensoredModels.com](https://uncensoredmodels.com/){:target="_blank"} for $11.46 (£8.87). Let's find out how much sex sells, eh? 😉😉😉
 
-Edit (24 March 2025): Get your membership this weekend. And maybe consider writing to your local MP. You might wanna do it before the neighbour you complained about starts playing with uncensored models.
+Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP. You might wanna do it before the neighbour you complained about starts playing with uncensored models.
 
 ---
 
