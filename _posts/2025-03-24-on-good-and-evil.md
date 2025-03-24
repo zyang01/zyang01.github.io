@@ -2,6 +2,7 @@
 layout: post
 title: On Good and Evil
 date: 2025-03-24 15:07 +0000
+pin: true
 ---
 
 [Here](../on-background-music/#definition-of-good){:target="_blank"} is a quick reminder of the definition of good from my early teenage years. The TL;DR is to wet my pants rather than cross the road at a red light.
