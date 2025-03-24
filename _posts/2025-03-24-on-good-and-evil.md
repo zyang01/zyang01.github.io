@@ -21,6 +21,10 @@ I am always an ass man and never a boobs guy anyway.
 
 ---
 
+![4 of 6 3D printers](/1qfxtsMv5P4QuGayyF.jpg)
+
+---
+
 ## 1 Peter 3:8–22
 
 Suffering for Righteousness’ Sake
