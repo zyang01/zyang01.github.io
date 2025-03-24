@@ -7,7 +7,7 @@ image: /uncensored_models.jpeg
 pin: true
 ---
 
-Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP.  If you are a British citizen or UK resident, you could also sign [my petition](#petition) to the UK Government and Parliament. You might want to do it before the neighbour you complained about starts playing with uncensored models.
+Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP.  If you are a British citizen or UK resident, you could also sign [my petition](#petition) to the UK Government and Parliament. You might want to do it before the neighbour you complained about starts playing with uncensored models. If you are not bothered with reading the articles I referenced, one article contains step-by-step instructions on removing censorship on existing models. We are talking about a guy doing that in one evening on their laptop.
 
 My apologies. It's not the kind of uncensored models you might have in mind.
 
@@ -120,7 +120,7 @@ Right now, anyone can get an uncensored large language model up and running with
 
 [Sign the petition](https://petition.parliament.uk/petitions/723262/sponsors/new?token=xLYC9Lrpjhke5WTsqdXR){:target="_blank"}
 
-Edit (24 March 2025): My faithful theologian friend mentioned that my petition seems lacking in concrete actions for the government. In case you have not started a petition before, the submission form has a character limit, and I did the best I could. Otherwise, I would have stuffed the entire Holy Bible in there. I also came up with zero alternatives, which is unusual for the troublemaker that is me. I would argue that my petition already includes concrete enough actions for the government. It's just you need to have faith.
+Edit (24 March 2025): My faithful theologian friend mentioned that my petition seems lacking in concrete actions for the government. If you have not started a petition before, the submission form has a character limit, and I did the best I could. Otherwise, I would have stuffed the entire Holy Bible in there. I also came up with zero alternatives, which is unusual for the troublemaker that is me. I would argue that my petition already includes concrete enough actions for the government. It's just you need to have faith.
 
 ---
 
