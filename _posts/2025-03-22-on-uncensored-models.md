@@ -7,7 +7,7 @@ image: /uncensored_models.jpeg
 pin: true
 ---
 
-Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP. You might wanna do it before the neighbour you complained about starts playing with uncensored models.
+Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP.  If you are a British citizen or UK resident, you could also sign [my petition](#petition) to the UK Government and Parliament. You might want to do it before the neighbour you complained about starts playing with uncensored models.
 
 My apologies. It's not the kind of uncensored models you might have in mind.
 
@@ -105,6 +105,24 @@ Edit (22 March 2025): By the grace of God, I managed to secure the domain name [
 Enjoy. 😘
 
 <embed src="https://dl.hesaidlove.com/UncensoredModels.com.pdf" type="application/pdf" width="100%" height="700px" />
+
+---
+
+<b id="petition">I want to start a petition – will you sign it?</b>
+
+[Sign the petition](https://petition.parliament.uk/petitions/723262/sponsors/new?token=xLYC9Lrpjhke5WTsqdXR){:target="_blank"}
+
+Seek the kingdom of God and His righteousness
+
+To loose the bonds of wickedness, to undo the straps of the yoke, to let the oppressed go free, and break every yoke. To share bread with the hungry, to bring the homeless poor into the house, to cover the naked, and not hide from our own flesh.
+
+Right now, anyone can get an uncensored large language model up and running with a handful of commands in minutes. Technically, anyone can start making devices that resemble the word that describes a female body part. The floodgates have opened, the genie is out of the bottle and we have reached the point of no return. Even Google knows this. There is only one person who could help us now. More details can be found on UncensoredModels.com
+
+[Sign the petition](https://petition.parliament.uk/petitions/723262/sponsors/new?token=xLYC9Lrpjhke5WTsqdXR){:target="_blank"}
+
+---
+
+<embed src="https://dl.hesaidlove.com/petition_aaron_yang.pdf" type="application/pdf" width="100%" height="700px" />
 
 ---
 
