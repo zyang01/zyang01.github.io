@@ -120,6 +120,8 @@ Right now, anyone can get an uncensored large language model up and running with
 
 [Sign the petition](https://petition.parliament.uk/petitions/723262/sponsors/new?token=xLYC9Lrpjhke5WTsqdXR){:target="_blank"}
 
+Edit (24 March 2025): My faithful theologian friend mentioned that my petition seems lacking in concrete actions for the government. In case you have not started a petition before, the submission form has a character limit, and I did the best I could. Otherwise, I would have stuffed the entire Holy Bible in there. I also came up with zero alternatives, which is unusual for the troublemaker that is me. I would argue that my petition already includes concrete enough actions for the government. It's just you need to have faith.
+
 ---
 
 <embed src="https://dl.hesaidlove.com/petition_aaron_yang.pdf" type="application/pdf" width="100%" height="700px" />
