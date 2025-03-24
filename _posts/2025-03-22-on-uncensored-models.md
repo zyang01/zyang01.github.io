@@ -7,7 +7,7 @@ image: /uncensored_models.jpeg
 pin: true
 ---
 
-Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP.  If you are a British citizen or UK resident, you could also sign [my petition](#petition) to the UK Government and Parliament. You might want to do it before the neighbour you complained about starts playing with uncensored models. If you are not bothered with reading the articles I referenced, one article contains step-by-step instructions on removing censorship on existing models. We are talking about a guy doing that in one evening on their laptop.
+Edit (24 March 2025): Get your membership and starter pack this weekend. And maybe consider writing to your local MP.  If you are a British citizen or UK resident, you could also sign [my petition](#petition) to the UK Government and Parliament. You might want to do it before the neighbour you complained about starts playing with uncensored models. If you are not bothered with reading the articles I referenced, one article contains step-by-step instructions on removing censorship on existing models. We are talking about a guy doing that in one evening on their laptop. It's only a matter of time before someone goes [Geronimo](https://genius.com/Sheppard-geronimo-lyrics){:target="_blank"} on this.
 
 My apologies. It's not the kind of uncensored models you might have in mind.
 
