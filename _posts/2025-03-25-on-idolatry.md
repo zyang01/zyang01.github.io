@@ -21,7 +21,7 @@ The Great Commandment
 
 ---
 
-Did you notice the verb in both commandments is the same? Boss Man said to ***love***. I suspect most unbelievers and possibly most Christians, especially the antichrists, do not know what the first commandment means. You need to know who God is and what He is like before you can understand the first commandment. John the Apostle answered that in 1 John.
+Did you notice the verb in both commandments is the same? Boss Man said to ***love***. I suspect unbelievers and possibly most Christians, especially the antichrists, do not know what the first commandment means. You need to know who God is and what He is like before you can understand the first commandment. John the Apostle answered that in 1 John.
 
 ---
 
@@ -37,7 +37,7 @@ Assuming you did not fail your logical reasoning or reading comprehension in sch
 
 If you have followed the logical reasoning up to this point, it is natural to wonder, "What is love?" If you are the lucky target of my clickbait campaigns, you would know the equation of love I derived at age 16.
 
-***Love is the greatest sacrifice one is willing to make. Just ask any father what they are willing to sacrifice for their child.***
+**Love is the greatest sacrifice one is willing to make. Just ask any father what they are willing to sacrifice for their child.**
 
 The definition is confirmed by Boss Man's actions 2,000 years ago before He went on a 2,000-year paid leave due to a severe workplace injury, as well as His words.
 
@@ -49,7 +49,7 @@ The definition is confirmed by Boss Man's actions 2,000 years ago before He went
 
 ---
 
-Through the [lesson of Genesis 3](../on-genesis-3-fall-man/){:target="_blank"}, we learned the importance of the [order of precedence](https://en.wikipedia.org/wiki/Order_of_operations){:target="_blank"}. We can apply the same principle here and deduce the following statement. You are worshipping a false idol called *the law* if you believe God hates rampant homosexuals like me. **You are effectively putting the law above God by putting the law above love.**
+Through the [lesson of Genesis 3](../on-genesis-3-fall-man/){:target="_blank"}, we learned the importance of the [order of precedence](https://en.wikipedia.org/wiki/Order_of_operations){:target="_blank"}. We can apply the same principle here and deduce the following statement. You are worshipping a false idol called **the law** if you believe God hates rampant homosexuals like me. **You are effectively putting the law above God by putting the law above love.**
 
 ---
 
@@ -69,7 +69,7 @@ The Way of Love
 
 Through this 26-week and 2-day faith journey, I learned the world does not know God and love. If you subscribe to the [religion of Darwinism](https://en.wikipedia.org/wiki/Darwinism){:target="_blank"}, you would not know God and love because you do not know what it means to sacrifice. All you would know is natural selection and survival of the fittest. Your existence and suffering are inherently meaningless due to [existentialism](https://en.wikipedia.org/wiki/Existentialism){:target="_blank"}, [nihilism](https://en.wikipedia.org/wiki/Nihilism){:target="_blank"} and [antinatalism](https://en.wikipedia.org/wiki/Antinatalism){:target="_blank"}. There is nothing but death waiting for you at the end of the road. Congratulations, I guess.
 
-I came across this [video on YouTube](https://www.youtube.com/watch?v=uD4izuDMUQA){:target="_blank"} called *TIMELAPSE OF THE FUTURE: A Journey to the End of Time (4K)* during COVID-19. I was obsessed with quantum mechanics and the mysteries of our physical universe. It's an amazing production, but unfortunately, it's also a load of bull excrement. Now that I know the truth. Enjoy.
+I came across this [video on YouTube](https://www.youtube.com/watch?v=uD4izuDMUQA){:target="_blank"} called *TIMELAPSE OF THE FUTURE: A Journey to the End of Time (4K)* during COVID-19. I was obsessed with [quantum mechanics](https://en.wikipedia.org/wiki/Quantum_mechanics){:target="_blank"} and the mysteries of our physical universe. It's an amazing production, but unfortunately, it's also a load of bull excrement. Now that I know the truth. Enjoy.
 
 ---
 
