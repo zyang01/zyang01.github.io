@@ -69,7 +69,7 @@ The Way of Love
 
 Through this 26-week and 2-day faith journey, I learned the world does not know God and love. If you subscribe to the [religion of Darwinism](https://en.wikipedia.org/wiki/Darwinism){:target="_blank"}, you would not know God and love because you do not know what it means to sacrifice. All you would know is natural selection and survival of the fittest. Your existence and suffering are inherently meaningless due to [existentialism](https://en.wikipedia.org/wiki/Existentialism){:target="_blank"}, [nihilism](https://en.wikipedia.org/wiki/Nihilism){:target="_blank"} and [antinatalism](https://en.wikipedia.org/wiki/Antinatalism){:target="_blank"}. There is nothing but death waiting for you at the end of the road. Congratulations, I guess.
 
-I came across this [video on YouTube](https://www.youtube.com/watch?v=uD4izuDMUQA){:target="_blank"} called *TIMELAPSE OF THE FUTURE: A Journey to the End of Time (4K)* during COVID-19. I was obsessed with quantum mechanics and the mysteries of our physical universe. It's an amazing production, but unfortunately a load of bull excrement. Now that I know the truth. Enjoy.
+I came across this [video on YouTube](https://www.youtube.com/watch?v=uD4izuDMUQA){:target="_blank"} called *TIMELAPSE OF THE FUTURE: A Journey to the End of Time (4K)* during COVID-19. I was obsessed with quantum mechanics and the mysteries of our physical universe. It's an amazing production, but unfortunately, it's also a load of bull excrement. Now that I know the truth. Enjoy.
 
 ---
 
