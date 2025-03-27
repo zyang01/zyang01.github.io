@@ -77,6 +77,10 @@ I came across this [video on YouTube](https://www.youtube.com/watch?v=uD4izuDMUQ
 
 ---
 
+<embed src="https://dl.hesaidlove.com/What_God_Hates.pdf" type="application/pdf" width="100%" height="600px" />
+
+---
+
 ## Memes
 
 ![God: Did I stutter?!](/23b77f88ffc37781d362c68e8fb444a0.jpeg)

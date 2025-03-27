@@ -14,7 +14,7 @@ It is priceless for me. And my dignity is nothing compared to the salvation of a
 
 I had a blast earlier today doing another stream on Stripchat. It was my best stream because the crowd was kind and loved to chat. It turns out I love bringing the good news of salvation to my fellow rampant homosexuals and helping them to know who God is.
 
-As one observant viewer put it, things got deeper than the fuck machine at the end.
+As one observant viewer elegantly put it, things got deeper than the fuck machine at the end.
 
 I totally did not expect to be a sex worker one day, but oh well. I will start handing out my servant business cards at Horse Fair and FickstutenMarkt. It's been a while since the drone crash.
 
