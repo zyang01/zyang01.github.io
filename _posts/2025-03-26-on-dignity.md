@@ -26,6 +26,18 @@ Enjoy.
 
 ---
 
+Edit (28 March 2025)
+
+I was hoping to do another stream earlier today. However, I totally did not expect it would take me an entire day to produce a Not-Really-SFW director's cut for general consumption.
+
+I got really annoyed at ChatGPT again. Anyway, I will not be paying OpenAI a single dollar anymore. I found a list of goodies that I can play with. I'm already self-hosting Open WebUI. I would have gone entirely open-source if it wasn't for the $12 I paid OpenAI last year for the project Bible Says Love. I don't think the sky is the limit this time.
+
+It will be fun.
+
+<embed src="https://dl.hesaidlove.com/ubuntu_video_image_overlay.pdf" type="application/pdf" width="100%" height="600px" />
+
+---
+
 ## Isaiah 26
 
 You Keep Him in Perfect Peace
