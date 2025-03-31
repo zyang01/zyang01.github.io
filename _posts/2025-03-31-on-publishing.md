@@ -27,6 +27,8 @@ Beautiful poetry on Sartre's gastrointestinal problems
 
 Some news about Lit Mag
 
+Something about having pockets
+
 Something about post road
 
 A whole lot on AI and various other matters in between
