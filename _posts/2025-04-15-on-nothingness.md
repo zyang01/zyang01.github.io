@@ -31,4 +31,28 @@ The Golden Rule
 
 ---
 
+Edit: Hopefully, this is the final edit of GonnaBeLit. This is for the blind, for the deaf and for the illiterate to proclaim liberty to the captives, and the opening of the prison to those who are bound. Boss Man said it long ago. And it was written long ago. Enjoy, and I will see you at sunrise.
+
+---
+
+Zechariah 3:1
+
+A Vision of Joshua the High Priest
+
+[1] Then he showed me Joshua the high priest standing before the angel of the LORD, and Satan standing at his right hand to accuse him. (ESV)
+
+---
+
+John 5:45
+
+[45] Do not think that I will accuse you to the Father. There is one who accuses you: Moses, on whom you have set your hope. (ESV)
+
+---
+
+Revelation 12:10
+
+[10] And I heard a loud voice in heaven, saying, “Now the salvation and the power and the kingdom of our God and the authority of his Christ have come, for the accuser of our brothers has been thrown down, who accuses them day and night before our God. (ESV)
+
+---
+
 <embed src="https://dl.hesaidlove.com/on_nothingness.pdf" type="application/pdf" width="100%" height="700px" />
