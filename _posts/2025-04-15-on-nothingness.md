@@ -31,7 +31,7 @@ The Golden Rule
 
 ---
 
-Edit: Hopefully, this is the final edit of GonnaBeLit. This is for the blind, for the deaf and for the illiterate to proclaim liberty to the captives, and the opening of the prison to those who are bound. Boss Man said it long ago. And it was written long ago. Enjoy, and I will see you at sunrise.
+Edit: Hopefully, this is the final edit of GonnaBeLit. This is for the blind, for the deaf and for the illiterate to proclaim liberty to the captives, and the opening of the prison to those who are bound. Boss Man said it long ago. And it was written long ago. You either believe He is the way and the truth and the life or you don't. If you believe Him, then you would agree that Moses is the accuser, the ancient serpent who led the whole world astray. You can never justify killing with love, which in its true form would always make you fearlessly sacrifice for others, even if that means giving up your own life. Enjoy, and I will see you at sunrise.
 
 ---
 
