@@ -5,7 +5,7 @@ date: 2025-04-27 09:13 +0100
 pin: true
 ---
 
-To the theologians and philosophers who received my email and got here, feel free to let me know if you need anything from me for the resurrection of theology and philosophy. I will be focusing my efforts on the 144,000 in Revelation 14.
+To the theologians and philosophers who received my email and got here, feel free to let me know if I can help with the resurrection of theology and philosophy. I will be focusing on bringing my community, who were condemned but guiltless, back to Him.
 
 ---
 
@@ -17,4 +17,4 @@ The Lamb and the 144,000
 
 ---
 
-<embed src="https://dl.hesaidlove.com/Matthew_25_and_Forgiveness.pdf" type="application/pdf" width="100%" height="700px" />
+<embed src="https://dl.hesaidlove.com/Re_Matthew_25_and_Forgiveness.pdf" type="application/pdf" width="100%" height="700px" />
