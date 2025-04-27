@@ -18,3 +18,7 @@ The Lamb and the 144,000
 ---
 
 <embed src="https://dl.hesaidlove.com/Re_Matthew_25_and_Forgiveness.pdf" type="application/pdf" width="100%" height="700px" />
+
+---
+
+![When you tell people what the Bible really says](/when_you_tell_peole_what_the_bible_really_says.jpeg)
